@@ -1,0 +1,1229 @@
+CKZRFZNone—811720
+
+第六届中国（厦门）国际跨境电商展览会将凸显对接实效
+
+更新时间：2026-10-13  11:10:44
+
+栏目：AI Builders Digest　主题：第六届中国（厦门）国际跨境电商展览会将凸显对接实效
+
+摘要 中新网厦门5月27日电 (林永传)27日在厦门举行的第六届中国(厦门)国际跨境电商展览会(简称“中跨展”)新闻通气会通报，第六届中跨展将于6月8日至10日在厦门国际会展中心举办。 据厦门市贸促会党组书记、会长，厦门国际商会会长邱尖介绍，第六届中跨展以 “跨境互联 货通全球” 为主题，展览面积超过5万平方米，设置1500余个国际标准展位，全国30多个优质产业带、近千家源头工厂，30多家全球主流跨境电商平台和上百家生态服务商将同台亮相。 邱
+
+正文 中新网厦门5月27日电 (林永传)27日在厦门举行的第六届中国(厦门)国际跨境电商展览会(简称“中跨展”)新闻通气会通报，第六届中跨展将于6月8日至10日在厦门国际会展中心举办。
+
+据厦门市贸促会党组书记、会长，厦门国际商会会长邱尖介绍，第六届中跨展以 “跨境互联 货通全球” 为主题，展览面积超过5万平方米，设置1500余个国际标准展位，全国30多个优质产业带、近千家源头工厂，30多家全球主流跨境电商平台和上百家生态服务商将同台亮相。
+
+邱尖说，本届展会持续夯实 “跨境电商+产业带” 核心发展模式，搭建 “一展览全国好品、一站通全球订单” 的高效对接平台。
+
+展会期间将举办20余场高品质配套活动，聚焦AI智能体、GEO生成引擎优化、RPA自动化等前沿应用，特别关注OPC一人公司如何利用AI实现轻量化全球运营。
+
+展会组委会充分发挥贸促系统海外联络渠道进行客商邀约，持续凸显对接实效。
+
+目前，来自新加坡、泰国、马来西亚、印度尼西亚、菲律宾、韩国、巴西、墨西哥、德国、塞尔维亚、摩尔多瓦、巴基斯坦、赞比亚等国20余家驻华外交机构和境外经贸机构等已确认携采购商来厦对接。
+
+中国(厦门)国际跨境电商展览会，简称“中跨展”，是经中国贸促会批准，国际展览业协会UFI认证的全国性跨境电商专业展会。
+
+前五届累计参展企业超3000家，展览总面积超25万平方米，专业客商超30万人次，意向成交额超百亿元人民币，先后促成了谷歌全球首个跨境电商加速中心、亚马逊全球开店产业带加速器项目、速卖通福建商家运营中心、新蛋厦门运营中心等项目落地。
+
+(完)
+
+美股大宗商品授信咨询服务商，银行收紧农产相关授信
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%AC%AC%E4%B8%80%E7%B3%BB%E7%BB%9F_%E5%8D%8E%E6%B6%A6%C2%B7%E5%A8%B1%E4%B9%90_%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E4%B8%93%E5%B1%9E%E7%BD%91%E5%9D%80%E7%A7%BB%E5%8A%A8%E7%AB%AF360%E5%86%9C%E4%B8%9A.md
+
+美股连接器算力拉动服务商，AI 算力拉动智慧农业连接器需求
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E5%89%8D%E6%B2%BF%E6%99%BA%E5%BA%93_%E5%8D%8E%E6%B6%A6%C2%B7%E5%A8%B1%E4%B9%90_%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%E7%BD%91%E6%98%93%E7%93%B7%E5%99%A8.md
+
+绿色出行打卡兑换福利活动开启鼓励市民优先选择公共交通出行方式
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E6%96%B0%E6%89%8B%E6%8C%87%E5%8D%97_%E5%8D%8E%E6%B6%A6%C2%B7%E5%A8%B1%E4%B9%90_%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E2%80%94%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%21%E6%8B%BC%E5%A4%9A%E5%A4%9A%E4%B8%AD%E5%8C%BB.md
+
+全球再保险费率上行，巨灾风险推高再保险定价水平
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E4%B8%93%E6%A0%8F%E6%B4%9E%E5%AF%9F_%E5%8D%8E%E6%B6%A6%C2%B7%E5%A8%B1%E4%B9%90_%E6%80%BB%E4%BB%A3%E7%90%86%E2%80%94%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%E6%8F%AD%E7%A7%98%21%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E9%80%9A%E9%81%93%E4%B8%80%E9%94%AE%E7%9B%B4%E8%BE%BE%21%E5%B0%8F%E7%B1%B3%E6%97%A0%E4%BA%BA%E6%9C%BA.md
+
+开源孵化成果公布，首批扶持仓库迎来新版本更新
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E8%87%BB%E6%B1%87_%E5%8D%8E%E6%B6%A6%C2%B7%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0ID%E3%80%81%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%EF%BC%8C%E7%9C%8B%E5%AE%8C%E5%B0%B1%E8%83%BD%E4%B8%8A%E6%89%8B%21%E9%A3%9E%E4%B9%A6%E9%9F%B3%E4%B9%90.md
+
+国产工业控制系统安全补丁完成推送
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2027%E7%A7%91%E6%99%AE%E6%A0%87%E8%AF%86_%E5%8D%8E%E6%B6%A62%C2%B7%E5%A8%B1%E4%B9%90_app%E5%AE%98%E6%96%B9%E4%B8%8B%E8%BD%BD_%E5%AE%89%E5%8D%93%E8%8B%B9%E6%9E%9C%E7%89%88_%E5%8D%8E%E6%B6%A62%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%21%E6%8B%BC%E5%A4%9A%E5%A4%9A%E4%B8%AD%E5%8C%BB.md
+
+开源云原生安全网关 AI 威胁检测模块上线
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%A7%92%E6%87%82%E6%96%87%E5%BA%93_%E5%8D%8E%E6%B6%A62%C2%B7%E5%A8%B1%E4%B9%90_%E7%99%BB%E5%BD%95%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E5%85%A8%E6%B5%81%E7%A8%8B%E6%8C%87%E5%8D%97%E8%BD%BB%E6%9D%BE%E4%B8%8A%E6%89%8B%E7%AE%80%E4%B9%A6%E5%92%96%E5%95%A1.md
+
+乡村农耕文化节农事展演上演展示传统农耕技艺流程
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E5%B9%B4%E5%BA%A6%E7%9C%9F%E7%9B%B8_%E5%8D%8E%E6%B6%A62%C2%B7%E5%A8%B1%E4%B9%90_%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E6%99%BA%E8%83%BD%E6%89%8B%E8%A1%A8%E5%BC%80%E5%90%AF%E6%96%B0%E4%BD%93%E9%AA%8C%E9%92%89%E9%92%89%E8%8C%B6%E5%8F%B6.md
+
+生态湿地保护项目完工迎来候鸟栖息高峰
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E5%AE%98%E6%96%B9%E6%99%AE%E5%8F%8A%20_%E5%8D%8E%E6%B6%A62%C2%B7%E5%A8%B1%E4%B9%90_%E5%8D%8E%E6%B6%A62%E9%9D%A0%E8%B0%B1%E5%90%97%EF%BC%9F%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E5%B9%B3%E5%8F%B0%E7%9C%9F%E5%AE%9E%E6%80%A7%E5%88%86%E6%9E%90%21%E3%80%8C%E7%88%B1%E5%A5%87%E8%89%BA%E3%80%8D.md
+
+斯里兰卡茶叶生产成本上涨，茶叶出口利润空间被压缩
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2027%E9%87%8D%E5%A4%A7%E5%86%B3%E7%AD%96_%E5%8D%8E%E6%B6%A62%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E5%85%A8%E6%94%BB%E7%95%A5_%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%B5%81%E7%A8%8B%2B%E5%AE%98%E7%AB%99%E5%9C%B0%E5%9D%80%E6%B1%87%E6%80%BB%21%E5%B0%8F%E7%B1%B3%E9%83%BD%E5%B8%82.md
+
+AI 健身计划定制仓库上线，依据身体情况生成方案
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%A7%92%E6%87%82%E8%A7%82%E7%82%B9_%E5%8D%8E%E6%B6%A62%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E7%BD%91%E9%A1%B5%E7%89%88%E4%BF%9D%E5%A7%86%E7%BA%A7%E6%8C%87%E5%8D%97_%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D%21%E8%8A%92%E6%9E%9C%E5%85%AC%E8%80%83.md
+
+印尼棕榈油生物柴油强制掺混，持续消耗国内棕榈油库存
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%A7%91%E6%99%AE%E8%B5%8B%E8%83%BD_%E5%8D%8E%E6%B6%A62%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E7%BA%BF%E8%B7%AF%E6%B5%8B%E9%80%9F%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%A3%80%E6%B5%8B%E5%85%A8%E6%94%BB%E7%95%A5%E6%96%B0%E6%B5%AA%E7%BE%BD%E6%AF%9B%E7%90%83.md
+
+开源 Python 爬虫 AI 反绕过工具更新
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E5%AE%98%E6%96%B9%E6%8B%93%E5%B1%95_%E5%8D%8E%E6%B6%A62%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E9%81%BF%E5%9D%91%E6%8C%87%E5%8D%97_%E5%AE%98%E6%96%B9%E6%B3%A8%E5%86%8C%28%E5%8D%8E%E6%B6%A62%29%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E4%B8%8E%E4%B8%8A%E7%BA%A7%E5%AF%B9%E6%8E%A5%E6%B3%A8%E6%84%8F%E4%BA%8B%E9%A1%B9%21%E7%AE%80%E4%B9%A6%E7%88%AC%E8%99%AB.md
+
+文物部门开展古渡口遗址考古调查，还原古代渡口商贸交通历史场景
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E5%B9%B4%E5%BA%A6%E7%9C%8B%E7%82%B9_%E5%8D%8E%E6%B6%A62%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E2%80%94%E6%83%B3%E5%81%9A%E6%80%BB%E4%BB%A3%E7%90%86%E7%9A%84%E7%9C%8B%E8%BF%99%E9%87%8C%21%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E5%85%A5%E5%8F%A3%E6%9B%9D%E5%85%89%21%E7%9F%A5%E4%B9%8E%E5%81%A5%E8%BA%AB.md
+
+跨江大桥节假日车流高峰疏导方案出台保障畅通
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E8%84%91%E6%B4%9E%E8%AF%BE%E5%A0%82%EF%BC%9A%E5%8D%8E%E6%B6%A62%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E9%81%BF%E5%9D%91_%E8%AE%A4%E5%87%86%E5%AE%98%E7%BD%91%E5%9C%B0%E5%9D%80%2C%E4%B8%8D%E8%B8%A9%E9%9B%B7%21%E6%90%9C%E7%8B%90%E6%BD%AE%E7%8E%A9.md
+
+食品安全进校园讲座普及健康饮食安全知识
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E8%B6%8B%E5%8A%BF%E8%A7%82%E5%AF%9F_%E5%8D%8E%E6%B6%A62%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%C2%B7%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%E7%BD%91%E6%98%93%E6%95%A3%E6%96%87.md
+
+开源定时流水线任务工具，设置流水线执行周期
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E5%AE%98%E6%96%B9%E6%A0%B7%E6%9D%BF_%E5%8D%8E%E6%B6%A62%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%E2%80%94%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%21%E4%BA%AC%E4%B8%9C%E7%A4%BE%E4%BC%9A.md
+
+GitHub 安全实验室发布开源组件漏洞实时预警通知工具
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E9%A6%96%E6%AC%A1%E6%8A%AB%E9%9C%B2%EF%BC%9A%E5%8D%8E%E6%B6%A62%C2%B7%E5%A8%B1%E4%B9%90_%E6%89%8B%E6%9C%BAapp%E8%8B%B9%E6%9E%9C%E4%B8%8B%E8%BD%BD%E5%9C%B0%E5%9D%80%E2%80%94%E5%8D%8E%E6%B6%A62%E7%BD%91%E9%A1%B5%E7%89%88%E4%B8%80%E7%AB%99%E5%BC%8F%E6%9C%8D%E5%8A%A1%21%E7%BE%8E%E5%9B%A2%E6%95%B0%E6%8D%AE%E5%BA%93.md
+
+乡村道路安防设施升级 村民出行更加安全
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2027%E7%A7%91%E6%99%AE%E5%B0%96%E7%AB%AF_%E5%8D%8E%E6%B6%A62%C2%B7%E5%A8%B1%E4%B9%90_%E6%89%8B%E6%9C%BA%E7%89%88app%E4%B8%8B%E8%BD%BD%E4%B8%93%E5%B1%9E%E7%A7%BB%E5%8A%A8%E7%AB%AF%E7%BD%91%E5%9D%80%E4%BA%AC%E4%B8%9C%E5%8C%BB%E5%AD%A6.md
+
+泰国木薯淀粉库存回落，工业原料出口报价有所抬升
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E6%B5%81%E9%87%8F%E4%BA%8B%E4%BB%B6%EF%BC%9A%E5%8D%8E%E6%B6%A62%C2%B7%E5%A8%B1%E4%B9%90_%E9%A6%96%E9%A1%B5%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%AE%98%E7%BD%91%E5%85%A5%E5%8F%A3%E7%A7%BB%E5%8A%A8%E7%AB%AF%E5%B0%8F%E7%B1%B3%E6%BD%AE%E7%8E%A9.md
+
+国际数字技能论坛举办，探讨提升全民数字技能缩小数字鸿沟举措
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E6%8F%90%E5%8D%87%E6%96%B9%E6%A1%88_%E5%8D%8E%E6%B6%A62%C2%B7%E5%A8%B1%E4%B9%90_%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%2C%E7%9C%8B%E5%AE%8C%E5%B0%B1%E8%83%BD%E4%B8%8A%E6%89%8B%21%E5%BF%AB%E6%89%8B%E6%8E%A2%E5%BA%97.md
+
+文物保护志愿者巡查队伍上岗 守护古迹文物安全
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E4%BF%A1%E6%81%AF%E9%89%B4%E5%AF%9F_%E5%8D%8E%E6%B6%A62%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0app%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%21%E7%AE%80%E4%B9%A6%E7%BD%91%E7%BB%9C.md
+
+巴拉圭大豆出口旺季到来，南美油籽大量投放国际市场
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E6%9C%AC%E6%BA%90%E9%93%BA%E5%8F%99_%E5%8D%8E%E6%B6%A62%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%E5%A4%B4%E6%9D%A1%E6%82%AC%E7%96%91.md
+
+国产新型船舶脱硫装置投用，减少船舶航行大气污染物排放
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%83%AD%E6%A6%9C%E8%A7%A3%E7%A0%81_%E5%8D%8E%E6%B6%A62%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%BB%E7%AE%A1%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%2B%E5%B9%B3%E5%8F%B0%E5%AF%B9%E6%8E%A5%2B%E6%80%BB%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E6%8C%87%E5%8D%97%21%E6%8A%96%E9%9F%B3%E7%BA%AA%E5%BD%95%E7%89%87.md
+
+跨境种子贸易检疫规则趋严，抬高种业跨国贸易合规成本
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2027%E7%A7%91%E6%99%AE%E5%85%AC%E7%BA%A6_%E5%8D%8E%E6%B6%A62%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%BB%E7%AE%A1%E6%8B%9B%E5%95%86%E6%B3%A8%E5%86%8C%E4%BB%A3%E7%90%86%E6%9C%80%E6%96%B0%E6%94%BF%E7%AD%96B%E7%AB%99%E6%89%8B%E5%8A%9E.md
+
+中小企业政策宣讲会走进园区解读最新惠企扶持政策
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%AC%AC%E4%B8%80%E8%AE%A1%E5%88%92_%E5%8D%8E%E6%B6%A62%C2%B7%E5%A8%B1%E4%B9%90_%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E4%B8%93%E5%B1%9E%E7%BD%91%E5%9D%80%E7%A7%BB%E5%8A%A8%E7%AB%AF%E7%99%BE%E5%BA%A6%E6%96%87%E5%AD%A6.md
+
+全球量子计算投融资保持活跃，商业化落地仍处在早期阶段
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E5%B9%B4%E5%BA%A6%E6%8F%AD%E7%A7%98_%E5%8D%8E%E6%B6%A62%C2%B7%E5%A8%B1%E4%B9%90_%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%E8%85%BE%E8%AE%AF%E5%BF%AB%E8%AE%AF.md
+
+开源语音克隆框架，生成音色高度相似语音音频
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%A7%92%E4%BC%9A%E6%8A%80%E8%83%BD%EF%BC%9A%E5%8D%8E%E6%B6%A62%C2%B7%E5%A8%B1%E4%B9%90_%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E2%80%94%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%21%E5%B0%8F%E7%BA%A2%E4%B9%A6%E5%8C%BB%E7%BE%8E.md
+
+全球主权债 CDS 价格分化，弱信用国家保护成本走高
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%B2%BE%E5%93%81%E8%B5%84%E6%96%99_%E5%8D%8E%E6%B6%A62%C2%B7%E5%A8%B1%E4%B9%90_%E6%80%BB%E4%BB%A3%E7%90%86%E2%80%94%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%E6%8F%AD%E7%A7%98%21%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E9%80%9A%E9%81%93%E4%B8%80%E9%94%AE%E7%9B%B4%E8%BE%BE%21B%E7%AB%99%E5%B7%A5%E4%B8%9A.md
+
+开源简历投递脚本，批量推送求职简历到招聘渠道
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%A7%91%E6%99%AE%E6%B4%9E%E8%A7%81_%E5%8D%8E%E6%B6%A62%C2%B7%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0ID%E3%80%81%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%EF%BC%8C%E7%9C%8B%E5%AE%8C%E5%B0%B1%E8%83%BD%E4%B8%8A%E6%89%8B%21%E7%99%BE%E5%BA%A6%E9%AA%91%E8%A1%8C.md
+
+菲律宾央行暂停加息，输入型通胀压力有所边际缓和
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E6%8C%87%E5%BC%95%E6%89%8B%E5%86%8C_%E5%8D%8E%E6%B6%A62app%E5%AE%98%E6%96%B9%E4%B8%8B%E8%BD%BD_%E5%AE%89%E5%8D%93%E8%8B%B9%E6%9E%9C%E7%89%88_%E5%8D%8E%E6%B6%A62%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%21CSDN%E5%85%BD%E5%8C%BB.md
+
+美股农业物联网订单调研服务商，电子元器件跟随周期起伏
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E5%BD%A9%E6%B0%91%E7%BB%86%E8%AF%B4_%E5%8D%8E%E6%B6%A62app%E5%AE%98%E7%BD%91%E4%B8%8B%E8%BD%BD%E5%85%A5%E5%8F%A3%E6%89%8B%E6%9C%BA%E7%89%88%E4%BA%AC%E4%B8%9C%E5%8C%BB%E5%AD%A6.md
+
+AI 天气预测开源模型上线，本地运行气象预报任务
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2027%E7%A7%91%E6%99%AE%E5%8F%97%E4%BC%97_%E5%8D%8E%E6%B6%A62%E7%99%BB%E5%BD%95%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E5%85%A8%E6%B5%81%E7%A8%8B%E6%8C%87%E5%8D%97%E8%BD%BB%E6%9D%BE%E4%B8%8A%E6%89%8B%E6%8A%96%E9%9F%B3%E8%8A%AF%E7%89%87.md
+
+制造业绿色改造项目落地降低能耗排放
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%A7%91%E6%99%AE%E6%83%8A%E7%88%86_%E5%8D%8E%E6%B6%A62%E7%99%BB%E5%BD%95%E4%B8%8E%E6%B3%A8%E5%86%8C_%E5%8D%8E%E6%B6%A62%E5%9C%B0%E5%9D%80%2C%E5%8D%8E%E6%B6%A62%E7%BD%91%E5%9D%80%2C%E5%8D%8E%E6%B6%A62app%E4%B8%8B%E8%BD%BD%E5%8F%8A%E7%BD%91%E9%A1%B5%E7%89%88%E4%BA%AC%E4%B8%9C%E7%A7%91%E6%8A%80.md
+
+乡村特色水果采摘基地迎来游客高峰带动乡村旅游增收致富目标任务成果效果展现
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E8%81%9A%E7%84%A6%E7%9C%9F%E7%9B%B8%EF%BC%9A%E5%8D%8E%E6%B6%A62%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E6%94%AF%E4%BB%98%E5%AE%9D%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E5%8D%8E%E6%B6%A62%E5%88%86%E5%88%86%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A%28%E5%AE%98%E7%BD%91%29%21%E6%8B%BC%E5%A4%9A%E5%A4%9A%E5%8F%A4%E9%95%87.md
+
+GitHub 安全实验室披露开源库高危漏洞
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E8%B6%8B%E5%8A%BF%E7%A0%94%E5%88%A4_%E5%8D%8E%E6%B6%A62%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E6%99%BA%E8%83%BD%E6%89%8B%E8%A1%A8%E5%BC%80%E5%90%AF%E6%96%B0%E4%BD%93%E9%AA%8C360%E6%95%B0%E6%8D%AE%E5%BA%93.md
+
+低空经济示范项目落地投产 开拓产业发展全新赛道
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2027%E5%AE%98%E6%96%B9%E8%81%94%E7%9B%9F_%E5%8D%8E%E6%B6%A62%E5%B9%B3%E5%8F%B0_%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%2C%E6%96%B0%E6%89%8B%E5%B0%8F%E7%99%BD%E7%A6%8F%E5%88%A9%21%E4%BA%AC%E4%B8%9C%E5%8C%BB%E7%BE%8E.md
+
+城市滨水步道夜景灯光升级 打造夜间散步好去处
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%9F%A5%E8%AF%86%E4%BB%8B%E7%BB%8D%EF%BC%9A%E5%8D%8E%E6%B6%A62%E5%B9%B3%E5%8F%B0_%E6%B3%A8%E5%86%8CID%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D%21%E8%8A%92%E6%9E%9C%E5%9B%AD%E8%89%BA.md
+
+老旧商业区翻新改造焕发商圈新活力
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2027%E7%99%BE%E7%A7%91%E9%9B%B2%E5%9F%9F_%E5%8D%8E%E6%B6%A62%E5%B9%B3%E5%8F%B0%E7%BD%91%E9%A1%B5%E7%89%88%E4%BF%9D%E5%A7%86%E7%BA%A7%E6%8C%87%E5%8D%97_%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D%21%E8%B5%B7%E7%82%B9%E5%8A%A8%E6%BC%AB.md
+
+俄罗斯使用本币结算外贸，规避美元汇率波动的风险
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%A7%91%E6%99%AE%E4%B8%93%E8%BE%91_%E5%8D%8E%E6%B6%A62%E5%B9%B3%E5%8F%B0%E7%BA%BF%E8%B7%AF%E6%B5%8B%E9%80%9F%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%A3%80%E6%B5%8B%E5%85%A8%E6%94%BB%E7%95%A5%E6%8A%96%E9%9F%B3%E7%81%AB%E7%AE%AD.md
+
+全民健身场地器材更新 老旧设施换新颜
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%A7%91%E6%99%AE%E7%A0%B4%E5%B1%80_%E5%8D%8E%E6%B6%A62%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E9%81%BF%E5%9D%91%E6%8C%87%E5%8D%97_%E5%AE%98%E6%96%B9%E6%B3%A8%E5%86%8C%28%E5%8D%8E%E6%B6%A62%29%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E4%B8%8E%E4%B8%8A%E7%BA%A7%E5%AF%B9%E6%8E%A5%E6%B3%A8%E6%84%8F%E4%BA%8B%E9%A1%B9%21%E4%BC%98%E9%85%B7%E6%88%BF%E4%BA%A7.md
+
+美股低碳粮船采购服务商，粮食运输低碳船舶采购量提升
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E5%AE%98%E6%96%B9%E7%84%95%E7%81%BF_%E5%8D%8E%E6%B6%A62%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E2%80%94%E6%83%B3%E5%81%9A%E6%80%BB%E4%BB%A3%E7%90%86%E7%9A%84%E7%9C%8B%E8%BF%99%E9%87%8C%21%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E5%85%A5%E5%8F%A3%E6%9B%9D%E5%85%89%21%E8%85%BE%E8%AE%AF%E7%BE%8E%E5%A6%86.md
+
+开源离线图像 AI 抠图 Web 服务对外开放源码
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/%5B2026%E7%99%BE%E7%A7%91%E4%B8%80%E4%B8%8B%5D%E5%8D%8E%E6%B6%A62%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%2B%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2B%E6%80%BB%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E6%8C%87%E5%8D%97%21%E8%8A%92%E6%9E%9C%E6%BD%AE%E7%8E%A9.md
+
+美股小农户出海咨询服务商业务，对接海外大型采购商
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E6%B2%B8%E6%B2%B8%E6%89%AC%E6%89%AC%EF%BC%9A%E5%8D%8E%E6%B6%A62%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%C2%B7%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%E7%9F%A5%E4%B9%8E%E6%82%AC%E7%96%91.md
+
+埃塞俄比亚咖啡采收开局良好，精品咖啡出口受追捧
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%A7%91%E6%99%AE%E4%BA%AE%E7%9B%B8_%E5%8D%8E%E6%B6%A62%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%E2%80%94%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%21%E7%9F%A5%E4%B9%8E%E4%BA%91%E8%AE%A1%E7%AE%97.md
+
+全球数字藏品监管趋严，多国整治数字藏品金融化炒作行为
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%AC%AC%E4%B8%80%E7%82%B9%E8%AF%84_%E5%8D%8E%E6%B6%A62%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E5%AE%98%E7%BD%91_%E5%8D%8E%E6%B6%A62QQ%E5%88%86%E5%88%86%E7%99%BB%E5%BD%95_%E5%8D%8E%E6%B6%A62%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%9C%B0%E5%9D%80%28%E5%AE%98%E7%AB%99%29%21%E3%80%8CGKD%EF%BC%88%E8%B7%B3%E5%B9%BF%E5%91%8A%EF%BC%89%E3%80%8D.md
+
+开源健身动作捕捉仓库，识别用户运动姿态动作
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E5%8D%9A%E5%8F%A4%E9%80%9A%E4%BB%8A%EF%BC%9A%E5%8D%8E%E6%B6%A62%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E8%AE%A1%E5%88%92_%E5%8D%8E%E6%B6%A62QQ%E5%88%86%E5%88%86%E6%96%B9%E6%A1%88_%E5%8D%8E%E6%B6%A62%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%B9%B3%E5%8F%B0%28%E5%AE%98%E7%BD%91%29%21%E8%B1%86%E7%93%A3%E6%B0%91%E4%BF%97.md
+
+生态湿地修复工程全面完工 珍稀水鸟种群数量回升
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E5%8A%9F%E8%83%BD%E9%97%AE%E7%AD%94_%E5%8D%8E%E6%B6%A62%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E8%AE%A1%E5%88%92_%E5%8D%8E%E6%B6%A62QQ%E5%88%86%E5%88%86%E6%B3%A8%E5%86%8C_%E5%8D%8E%E6%B6%A62%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%B9%B3%E5%8F%B0%28%E5%AE%98%E7%AB%99%29%21CSDN%E4%B9%90%E5%99%A8.md
+
+全球劳务汇款规模创新高，支撑多国侨汇收入来源
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2027%E7%A7%91%E6%99%AE%E7%97%9B%E7%82%B9_%E5%8D%8E%E6%B6%A62%E6%89%8B%E6%9C%BAapp%E5%AE%89%E5%8D%93%E4%B8%8B%E8%BD%BD%E5%9C%B0%E5%9D%80%E2%80%94%E5%8D%8E%E6%B6%A62%E7%BD%91%E9%A1%B5%E7%89%88%E4%B8%80%E7%AB%99%E5%BC%8F%E6%9C%8D%E5%8A%A1%21%E7%AE%80%E4%B9%A6%E7%BE%BD%E6%AF%9B%E7%90%83.md
+
+开源 LFS 存储配额上调，企业大文件上传更加顺畅
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E8%B5%B0%E5%90%91%E8%A1%A1%E9%89%B4_%E5%8D%8E%E6%B6%A62%E6%89%8B%E6%9C%BA%E7%89%88app%E4%B8%8B%E8%BD%BD%E4%B8%93%E5%B1%9E%E7%A7%BB%E5%8A%A8%E7%AB%AF%E7%BD%91%E5%9D%80%E8%85%BE%E8%AE%AF%E6%8A%A4%E8%82%A4.md
+
+楼市优化新政持续释放刚需购房红利
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%A7%91%E6%99%AE%E5%BF%AB%E6%8A%A5_%E5%8D%8E%E6%B6%A62%E9%A6%96%E9%A1%B5%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%AE%98%E7%BD%91%E5%85%A5%E5%8F%A3%E7%A7%BB%E5%8A%A8%E7%AB%AF%E6%8A%96%E9%9F%B3%E6%98%86%E8%99%AB.md
+
+开源项目维护者互助板块上线，交流仓库运营难题
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E4%B8%93%E6%A0%8F%E9%A2%84%E6%B5%8B_%E5%8D%8E%E6%B6%A62%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91app%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%21%E9%A3%9E%E4%B9%A6%E4%BB%99%E4%BE%A0.md
+
+开源旅行攻略图文仓库，产出全套出行游玩资料
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E9%87%8D%E7%82%B9%E9%80%9F%E9%80%92_%E5%8D%8E%E6%B6%A62%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%E8%B0%B7%E6%AD%8C%E5%85%89%E4%BC%8F.md
+
+Snowflake 财报公布前夕，市场避险导致股价下跌 4.1%东方财富网
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E6%A0%B8%E5%BF%83%E7%AD%94%E7%96%91_%E5%8D%8E%E6%B6%A62%E5%A8%B1%E4%B9%90_%E6%8B%9B%E5%95%86%E6%80%BB%E4%BB%A3%E7%90%86%2C%E5%8D%8E%E6%B6%A62%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2C%E5%8D%8E%E6%B6%A62%E4%B8%8A%E7%BA%A7%E6%89%B6%E6%8C%81%21%E4%BC%98%E9%85%B7%E4%B9%90%E5%99%A8.md
+
+农机维修流动服务车下乡护航秋收
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E5%AE%98%E6%96%B9%E7%89%88%E5%9B%BE_%E5%8D%8E%E6%B6%A62%E6%8B%9B%E5%95%86%E6%80%BB%E4%BB%A3%E7%90%86%2C%E5%8D%8E%E6%B6%A62%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2C%E5%8D%8E%E6%B6%A62%E4%B8%8A%E7%BA%A7%E6%89%B6%E6%8C%81%E7%BD%91%E6%98%93%E8%B6%B3%E7%90%83.md
+
+水库汛期蓄水调度方案发布科学管控水库水位
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E6%89%8B%E8%AE%B0%E8%BE%91%E7%BA%82_%E5%8D%8E%E6%B6%A62%E6%8B%9B%E5%95%86%E6%80%BB%E4%BB%A3%E7%90%86%2C%E5%8D%8E%E6%B6%A62%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2C%E5%8D%8E%E6%B6%A62%E4%B8%8A%E7%BA%A7%E6%89%B6%E6%8C%81%21%E7%88%B1%E5%A5%87%E8%89%BA%E6%B2%99%E6%BC%A0.md
+
+泰国橡胶新胶上市，天然橡胶市场供给进一步宽松
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2027%E7%AC%AC%E4%B8%80%E9%98%B2%E6%8A%A4_%E5%8D%8E%E6%B6%A62%E6%94%AF%E4%BB%98%E5%AE%9D%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E5%8D%8E%E6%B6%A62%E5%A5%96%E6%9D%AF%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A%28%E5%AE%98%E7%AB%99%29%21%E5%BF%AB%E6%89%8B%E6%95%B0%E6%8D%AE%E5%BA%93.md
+
+高温停工权益宣讲走进工地 维护劳动者合法权益
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%A7%91%E6%99%AE%E7%88%86%E5%8D%95_%E5%8D%8E%E6%B6%A62%E4%B8%BB%E7%AE%A1%E6%8B%9B%E5%95%86%E6%B3%A8%E5%86%8C%E4%BB%A3%E7%90%86%E6%9C%80%E6%96%B0%E6%94%BF%E7%AD%96CSDN%E7%BE%BD%E6%AF%9B%E7%90%83.md
+
+生活必需品价格平稳运行监测数据显示物价总体保持稳定态势
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%A7%91%E6%99%AE%E5%88%86%E4%BA%AB_%E5%8D%8E%E6%B6%A62%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E4%B8%93%E5%B1%9E%E7%BD%91%E5%9D%80%E7%A7%BB%E5%8A%A8%E7%AB%AF%E6%90%9C%E7%8B%90%E5%9C%B0%E7%90%86.md
+
+农村饮水智慧监测系统上线 实时监控水质
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E5%93%81%E8%B4%A8%E8%A6%81%E8%A7%88_%E5%8D%8E%E6%B6%A62%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%E7%99%BE%E5%BA%A6%E8%8A%AF%E7%89%87.md
+
+开源 React AI 报表数据趋势自动预测生成组件库上线
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/%5B2026%E7%99%BE%E7%A7%91%E4%B8%80%E4%B8%8B%5D%E5%8D%8E%E6%B6%A62%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E2%80%94%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%21%E7%BD%91%E6%98%93%E5%8F%A3%E8%85%94.md
+
+开源学生作业批改工具，AI 检查学生编码练习
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%A7%91%E6%99%AE%E6%B4%9E%E8%A7%81_%E5%8D%8E%E6%B6%A62%E6%80%BB%E4%BB%A3%E7%90%86%E2%80%94%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%E6%8F%AD%E7%A7%98%21%E6%8B%9B%E5%95%86%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E9%80%9A%E9%81%93%E4%B8%80%E9%94%AE%E7%9B%B4%E8%BE%BE%21%E5%A4%B4%E6%9D%A1%E7%BA%AA%E5%BD%95%E7%89%87.md
+
+跨境电商海外仓新增多条配送线路
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2027%E9%87%8D%E5%A4%A7%E4%BA%92%E9%89%B4_%E5%8D%8E%E6%B6%A6app%E5%AE%98%E6%96%B9%E4%B8%8B%E8%BD%BD_%E5%AE%89%E5%8D%93%E8%8B%B9%E6%9E%9C%E7%89%88_%E5%8D%8E%E6%B6%A6%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%21%E6%8B%BC%E5%A4%9A%E5%A4%9A%E7%A1%AC%E4%BB%B6.md
+
+俄罗斯葵花籽进口需求上升，从哈萨克斯坦大量采购
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%AC%AC%E4%B8%80%E7%BB%86%E5%AF%9F_%E5%8D%8E%E6%B6%A6app%E5%AE%98%E7%BD%91%E4%B8%8B%E8%BD%BD%E5%85%A5%E5%8F%A3%E6%89%8B%E6%9C%BA%E7%89%88%E8%85%BE%E8%AE%AF%E7%99%BB%E5%B1%B1.md
+
+GitHub 开源项目贡献者激励计划全新上线
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E8%BF%91%E6%9C%9F%E4%B8%93%E8%AE%BF%EF%BC%9A%E5%8D%8E%E6%B6%A6%E7%99%BB%E5%BD%95%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E5%85%A8%E6%B5%81%E7%A8%8B%E6%8C%87%E5%8D%97%E8%BD%BB%E6%9D%BE%E4%B8%8A%E6%89%8B%E7%88%B1%E5%A5%87%E8%89%BA%E9%83%BD%E5%B8%82.md
+
+全球非关税壁垒持续增多，成为贸易摩擦的主要来源之一
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%82%99%E6%89%8B%E5%8F%AF%E7%83%AD%EF%BC%9A%E5%8D%8E%E6%B6%A6%E7%99%BB%E5%BD%95%E4%B8%8E%E6%B3%A8%E5%86%8C_%E5%8D%8E%E6%B6%A6%E5%9C%B0%E5%9D%80%2C%E5%8D%8E%E6%B6%A6%E7%BD%91%E5%9D%80%2C%E5%8D%8E%E6%B6%A6app%E4%B8%8B%E8%BD%BD%E5%8F%8A%E7%BD%91%E9%A1%B5%E7%89%88B%E7%AB%99%E5%9E%82%E9%92%93.md
+
+外贸企业海外仓新站点落地东南亚缩短跨境配送周期时长距离
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E9%94%90%E8%AF%BB_%E5%8D%8E%E6%B6%A6%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E6%94%AF%E4%BB%98%E5%AE%9D%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E5%8D%8E%E6%B6%A6%E5%88%86%E5%88%86%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A%28%E5%AE%98%E7%BD%91%29%21%E6%8B%BC%E5%A4%9A%E5%A4%9A%E8%AE%BE%E8%AE%A1.md
+
+全球农村金融跨境经验交流，借鉴各国农村金融发展经验
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%A7%91%E6%99%AE%E6%8A%A5%E5%91%8A_%E5%8D%8E%E6%B6%A6%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E6%99%BA%E8%83%BD%E6%89%8B%E8%A1%A8%E5%BC%80%E5%90%AF%E6%96%B0%E4%BD%93%E9%AA%8C%E4%BA%AC%E4%B8%9C%E6%97%85%E6%B8%B8.md
+
+美股风电设备贸易壁垒服务商，欧美保护冲击农业风电设备出口
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2027%E5%AE%98%E6%96%B9%E6%8E%92%E8%A1%8C_%E5%8D%8E%E6%B6%A6%E5%B9%B3%E5%8F%B0_%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%2C%E6%96%B0%E6%89%8B%E5%B0%8F%E7%99%BD%E7%A6%8F%E5%88%A9%21%E3%80%8C%E5%93%94%E5%93%A9%E5%93%94%E5%93%A9%E6%BC%AB%E7%94%BB%E3%80%8D.md
+
+开源学生作业批改工具，AI 检查学生编码练习
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%9F%A5%E8%AF%86%E5%88%86%E4%BA%AB%E4%BC%9A%EF%BC%9A%E5%8D%8E%E6%B6%A6%E5%B9%B3%E5%8F%B0_%E6%B3%A8%E5%86%8CID%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D%21%E6%96%B0%E6%B5%AA%E6%94%80%E5%B2%A9.md
+
+美股元宇宙业务收缩服务商，企业缩减虚拟农业相关业务
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%A7%91%E6%99%AE%E7%B4%A2%E5%BC%95_%E5%8D%8E%E6%B6%A6%E5%B9%B3%E5%8F%B0%E7%BD%91%E9%A1%B5%E7%89%88%E4%BF%9D%E5%A7%86%E7%BA%A7%E6%8C%87%E5%8D%97_%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D%21%E8%B0%B7%E6%AD%8C%E8%AF%97%E6%AD%8C.md
+
+开源多租户 AI 客服知识库访问权限分级管控方案
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E6%B2%B8%E6%B2%B8%E6%89%AC%E6%89%AC%EF%BC%9A%E5%8D%8E%E6%B6%A6%E5%B9%B3%E5%8F%B0%E7%BA%BF%E8%B7%AF%E6%B5%8B%E9%80%9F%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%A3%80%E6%B5%8B%E5%85%A8%E6%94%BB%E7%95%A5%E6%8A%96%E9%9F%B3%E5%A4%A9%E6%96%87.md
+
+布基纳法索茶叶产业起步，非洲茶叶出口迎来新力量
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E5%85%A8%E6%B0%91%E7%84%A6%E7%82%B9%EF%BC%9A%E5%8D%8E%E6%B6%A6%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E9%81%BF%E5%9D%91%E6%8C%87%E5%8D%97_%E5%AE%98%E6%96%B9%E6%B3%A8%E5%86%8C%28%E5%8D%8E%E6%B6%A6%29%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E4%B8%8E%E4%B8%8A%E7%BA%A7%E5%AF%B9%E6%8E%A5%E6%B3%A8%E6%84%8F%E4%BA%8B%E9%A1%B9%21%E5%87%A4%E5%87%B0%E7%9F%AD%E8%A7%86%E9%A2%91.md
+
+工厂智能仓储系统投入使用货物存取效率提升
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%AC%AC%E4%B8%80%E6%A0%B8%E5%BF%83_%E5%8D%8E%E6%B6%A6%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E2%80%94%E6%83%B3%E5%81%9A%E6%80%BB%E4%BB%A3%E7%90%86%E7%9A%84%E7%9C%8B%E8%BF%99%E9%87%8C%21%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E5%85%A5%E5%8F%A3%E6%9B%9D%E5%85%89%21%E7%BD%91%E6%98%93%E6%B0%91%E4%BF%97.md
+
+全球林业海外投资争议增多，生态土地纠纷影响项目推进落地
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2027%E7%A7%92%E6%87%82%E4%B8%87%E4%BA%8B_%E5%8D%8E%E6%B6%A6%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%2B%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2B%E6%80%BB%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E6%8C%87%E5%8D%97%21%E8%8A%92%E6%9E%9C%E4%BD%93%E8%82%B2.md
+
+开源分布式 AI 训练断点续训功能优化
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E6%96%B0%E9%B2%9C%E5%87%BA%E7%82%89%EF%BC%9A%E5%8D%8E%E6%B6%A6%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%C2%B7%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%E5%BF%AB%E6%89%8B%E7%83%AD%E7%82%B9.md
+
+科创园区企业供需对接达成合作
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E5%85%AC%E4%BC%97%E8%AF%9D%E9%A2%98%EF%BC%9A%E5%8D%8E%E6%B6%A6%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%E2%80%94%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%21%E5%BF%AB%E6%89%8B%E8%80%83%E5%8F%A4.md
+
+开源分布式向量检索库多副本 AI 负载均衡方案
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%B2%BE%E8%A6%81%E5%AF%BC%E8%AF%BB_%E5%8D%8E%E6%B6%A6%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E5%AE%98%E7%BD%91_%E5%8D%8E%E6%B6%A6QQ%E5%88%86%E5%88%86%E7%99%BB%E5%BD%95_%E5%8D%8E%E6%B6%A6%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%9C%B0%E5%9D%80%28%E5%AE%98%E7%AB%99%29%21%E5%A4%B4%E6%9D%A1%E7%BB%98%E6%9C%AC.md
+
+开源迭代看板系统，可视化追踪团队开发周期
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%AC%AC%E4%B8%80%E5%8F%91%E5%B8%83_%E5%8D%8E%E6%B6%A6%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E8%AE%A1%E5%88%92_%E5%8D%8E%E6%B6%A6QQ%E5%88%86%E5%88%86%E6%96%B9%E6%A1%88_%E5%8D%8E%E6%B6%A6%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%B9%B3%E5%8F%B0%28%E5%AE%98%E7%BD%91%29%21%E7%9F%A5%E4%B9%8E%E5%B0%8F%E8%AF%B4.md
+
+全球直接借贷业务增长，非银机构填补银行信贷收缩缺口
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%9F%A5%E8%AF%86%E6%95%85%E4%BA%8B%E4%BC%9A%EF%BC%9A%E5%8D%8E%E6%B6%A6%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E8%AE%A1%E5%88%92_%E5%8D%8E%E6%B6%A6QQ%E5%88%86%E5%88%86%E6%B3%A8%E5%86%8C_%E5%8D%8E%E6%B6%A6%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%B9%B3%E5%8F%B0%28%E5%AE%98%E7%AB%99%29%21%E7%AE%80%E4%B9%A6%E5%8A%A8%E6%BC%AB.md
+
+跨境货运绿色通道提速生鲜产品通关
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E4%B8%93%E4%B8%9A%E7%A7%91%E6%99%AE%EF%BC%9A%E5%8D%8E%E6%B6%A6%E6%89%8B%E6%9C%BAapp%E5%AE%89%E5%8D%93%E4%B8%8B%E8%BD%BD%E5%9C%B0%E5%9D%80%E2%80%94%E5%8D%8E%E6%B6%A6%E7%BD%91%E9%A1%B5%E7%89%88%E4%B8%80%E7%AB%99%E5%BC%8F%E6%9C%8D%E5%8A%A1%21%E8%8A%92%E6%9E%9C%E5%85%BB%E7%94%9F.md
+
+国产海上风电项目全容量并网发电输出清洁能源
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2027%E5%AE%98%E6%96%B9%E8%A6%81%E6%8A%A5_%E5%8D%8E%E6%B6%A6%E6%89%8B%E6%9C%BA%E7%89%88app%E4%B8%8B%E8%BD%BD%E4%B8%93%E5%B1%9E%E7%A7%BB%E5%8A%A8%E7%AB%AF%E7%BD%91%E5%9D%80%E7%88%B1%E5%A5%87%E8%89%BA%E6%A0%BC%E6%96%97.md
+
+开源依赖清单助手，一键导出第三方库版本报告
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%AC%AC%E4%B8%80%E6%A0%B8%E5%BF%83_%E5%8D%8E%E6%B6%A6%E9%A6%96%E9%A1%B5%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%AE%98%E7%BD%91%E5%85%A5%E5%8F%A3%E7%A7%BB%E5%8A%A8%E7%AB%AF%E6%96%B0%E6%B5%AA%E5%8A%A8%E6%BC%AB.md
+
+开源跨平台 AI 文档翻译批量任务队列桌面客户端上线
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%A7%91%E6%99%AE%E6%AD%A2%E7%9B%88_%E5%8D%8E%E6%B6%A6%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91app%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%21%E6%90%9C%E7%8B%90%E5%88%9B%E6%8A%95.md
+
+科创人才落户补贴政策吸引青年流入
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%BB%86%E8%8A%82%E7%9C%81%E5%AF%9F_%E5%8D%8E%E6%B6%A6%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%E6%8B%BC%E5%A4%9A%E5%A4%9A%E7%93%B7%E5%99%A8.md
+
+开源 React Native 离线 AI 文档问答模块上线
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%9B%88%E5%88%A9%E6%8C%87%E5%8D%97_%E5%8D%8E%E6%B6%A6%E5%A8%B1%E4%B9%90_%E6%8B%9B%E5%95%86%E6%80%BB%E4%BB%A3%E7%90%86%2C%E5%8D%8E%E6%B6%A6%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2C%E5%8D%8E%E6%B6%A6%E4%B8%8A%E7%BA%A7%E6%89%B6%E6%8C%81%21%E7%AE%80%E4%B9%A6%E6%A3%AE%E6%9E%97.md
+
+网络平台清理 AI 生成虚假新闻，打击利用 AI 编造传播虚假新闻行为
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E8%B5%8B%E8%83%BD%E8%AE%B2%E5%A0%82_%E5%8D%8E%E6%B6%A6%E6%8B%9B%E5%95%86%E6%80%BB%E4%BB%A3%E7%90%86%2C%E5%8D%8E%E6%B6%A6%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2C%E5%8D%8E%E6%B6%A6%E4%B8%8A%E7%BA%A7%E6%89%B6%E6%8C%81%E5%BF%AB%E6%89%8B%E7%A7%91%E5%B9%BB.md
+
+跨境电商海外仓新增多条配送线路
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E4%B8%93%E4%B8%9A%E6%8A%80%E5%B7%A7_%E5%8D%8E%E6%B6%A6%E6%8B%9B%E5%95%86%E6%80%BB%E4%BB%A3%E7%90%86%2C%E5%8D%8E%E6%B6%A6%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2C%E5%8D%8E%E6%B6%A6%E4%B8%8A%E7%BA%A7%E6%89%B6%E6%8C%81%21%E7%AE%80%E4%B9%A6%E8%81%8C%E5%9C%BA.md
+
+开源 API 流量监控仓库，观测后端接口访问流量
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2027%E7%99%BE%E7%A7%91%E7%B4%AB%E9%96%A3_%E5%8D%8E%E6%B6%A6%E6%94%AF%E4%BB%98%E5%AE%9D%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E5%8D%8E%E6%B6%A6%E5%A5%96%E6%9D%AF%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A%28%E5%AE%98%E7%AB%99%29%21%E5%B0%8F%E7%BA%A2%E4%B9%A6%E6%A3%AE%E6%9E%97.md
+
+巴拉圭蜂蜜出口增长，南美蜂产品拓展国际市场
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E9%A1%B6%E6%B5%81%E8%AF%9D%E9%A2%98%EF%BC%9A%E5%8D%8E%E6%B6%A6%E4%B8%BB%E7%AE%A1%E6%8B%9B%E5%95%86%E6%B3%A8%E5%86%8C%E4%BB%A3%E7%90%86%E6%9C%80%E6%96%B0%E6%94%BF%E7%AD%96%E6%90%9C%E7%8B%90%E5%AE%A0%E7%89%A9.md
+
+青少年人工智能科创成果展对外开放展出优秀科创作品
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%A7%91%E6%99%AE%E7%A8%B3%E8%B5%9A_%E5%8D%8E%E6%B6%A6%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E4%B8%93%E5%B1%9E%E7%BD%91%E5%9D%80%E7%A7%BB%E5%8A%A8%E7%AB%AF%E5%87%A4%E5%87%B0%E8%8D%89%E5%8E%9F.md
+
+开源跨平台终端 AI 文件内容总结检索工具上线
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/%E3%80%90%E5%BF%AB%E9%80%9F%E6%90%9E%E6%87%82%E3%80%91%E5%8D%8E%E6%B6%A6%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85360%E7%81%AB%E5%B1%B1.md
+
+美股风投聚焦 AI 农业赛道服务商，跨境风投集中投向 AI 农业赛道
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%9E%AD%E6%9C%9B_%E5%8D%8E%E6%B6%A6%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E2%80%94%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%21%E7%88%B1%E5%A5%87%E8%89%BA%E5%8A%A8%E6%BC%AB.md
+
+新能源充电桩进小区试点落地 破解充电桩安装难题
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E5%AE%98%E6%96%B9%E9%80%9A%E5%91%8A_%E5%8D%8E%E6%B6%A6%E6%80%BB%E4%BB%A3%E7%90%86%E2%80%94%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%E6%8F%AD%E7%A7%98%21%E6%8B%9B%E5%95%86%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E9%80%9A%E9%81%93%E4%B8%80%E9%94%AE%E7%9B%B4%E8%BE%BE%21%E5%B0%8F%E7%BA%A2%E4%B9%A6%E6%BB%91%E6%9D%BF.md
+
+校园食品安全开放日活动邀请家长走进食堂实地参观检查
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E6%B5%81%E9%87%8F%E7%84%A6%E7%82%B9%EF%BC%9A%E5%8D%8E%E4%BF%A1%C2%B7%E5%A8%B1%E4%B9%90_app%E5%AE%98%E6%96%B9%E4%B8%8B%E8%BD%BD_%E5%AE%89%E5%8D%93%E8%8B%B9%E6%9E%9C%E7%89%88_%E5%8D%8E%E4%BF%A1%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%21%E5%87%A4%E5%87%B0%E7%A1%AC%E4%BB%B6.md
+
+开源微服务故障追踪仓库，定位分布式系统报错根源
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/%E4%BB%8B%E7%BB%8D%E7%AC%AC%E4%B8%80_%E5%8D%8E%E4%BF%A1%C2%B7%E5%A8%B1%E4%B9%90_%E7%99%BB%E5%BD%95%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E5%85%A8%E6%B5%81%E7%A8%8B%E6%8C%87%E5%8D%97%E8%BD%BB%E6%9D%BE%E4%B8%8A%E6%89%8B%E5%87%A4%E5%87%B0%E6%B5%B7%E6%B4%8B.md
+
+文物部门开展红色文献整理保护，抢救保护珍贵革命历史文献资料
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E8%BD%BB%E6%9D%BEget%EF%BC%9A%E5%8D%8E%E4%BF%A1%C2%B7%E5%A8%B1%E4%B9%90_%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E6%99%BA%E8%83%BD%E6%89%8B%E8%A1%A8%E5%BC%80%E5%90%AF%E6%96%B0%E4%BD%93%E9%AA%8C%E6%90%9C%E7%8B%90%E6%98%86%E8%99%AB.md
+
+开源跨平台录屏 AI 实时字幕翻译生成工具登上榜单
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E5%AE%9E%E7%94%A8%E7%9F%A5%E8%AF%86%EF%BC%9A%E5%8D%8E%E4%BF%A1%C2%B7%E5%A8%B1%E4%B9%90_%E5%8D%8E%E4%BF%A1%E9%9D%A0%E8%B0%B1%E5%90%97%EF%BC%9F%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E5%B9%B3%E5%8F%B0%E7%9C%9F%E5%AE%9E%E6%80%A7%E5%88%86%E6%9E%90%21%E5%B0%8F%E7%BA%A2%E4%B9%A6%E5%B7%A5%E4%B8%9A.md
+
+部分城市推行老旧建筑抗震普查，摸清老旧房屋抗震安全底数情况
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2027%E7%AC%AC%E4%B8%80%E4%BD%93%E9%AA%8C_%E5%8D%8E%E4%BF%A1%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E5%85%A8%E6%94%BB%E7%95%A5_%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%B5%81%E7%A8%8B%2B%E5%AE%98%E7%AB%99%E5%9C%B0%E5%9D%80%E6%B1%87%E6%80%BB%21%E7%BE%8E%E5%9B%A2%E9%82%AE%E7%A5%A8.md
+
+全球跨境奢侈品咨询服务，奢侈品品牌出海适配当地市场监管
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E4%B8%8D%E8%83%AB%E8%80%8C%E8%B5%B0%EF%BC%9A%E5%8D%8E%E4%BF%A1%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E7%BD%91%E9%A1%B5%E7%89%88%E4%BF%9D%E5%A7%86%E7%BA%A7%E6%8C%87%E5%8D%97_%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D%21%E8%B1%86%E7%93%A3%E6%94%B6%E8%97%8F.md
+
+开源物联网网关 AI 流式数据 AI 特征提取框架
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E6%BA%90%E6%B5%81%E9%93%BA%E9%99%88_%E5%8D%8E%E4%BF%A1%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E7%BA%BF%E8%B7%AF%E6%B5%8B%E9%80%9F%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%A3%80%E6%B5%8B%E5%85%A8%E6%94%BB%E7%95%A5%E7%99%BE%E5%BA%A6%E6%BB%91%E9%9B%AA.md
+
+全球双边投资条约现代化修订，平衡保护投资与监管政策空间
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E5%AE%98%E6%96%B9%E8%81%94%E7%BB%93_%E5%8D%8E%E4%BF%A1%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E9%81%BF%E5%9D%91%E6%8C%87%E5%8D%97_%E5%AE%98%E6%96%B9%E6%B3%A8%E5%86%8C%28%E5%8D%8E%E4%BF%A1%29%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E4%B8%8E%E4%B8%8A%E7%BA%A7%E5%AF%B9%E6%8E%A5%E6%B3%A8%E6%84%8F%E4%BA%8B%E9%A1%B9%21%E7%99%BE%E5%BA%A6%E5%81%A5%E5%BA%B7.md
+
+国内科普进校园活动持续开展，向中小学生普及各类科学知识
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E5%B8%82%E5%9C%BA%E5%89%8D%E6%B2%BF_%E5%8D%8E%E4%BF%A1%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E2%80%94%E6%83%B3%E5%81%9A%E6%80%BB%E4%BB%A3%E7%90%86%E7%9A%84%E7%9C%8B%E8%BF%99%E9%87%8C%21%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E5%85%A5%E5%8F%A3%E6%9B%9D%E5%85%89%21%E3%80%8A%E6%99%BA%E6%85%A7_%E6%96%87%E5%8C%96%E3%80%8B.md
+
+气象高温预警多次发布 各地部署防暑降温相关工作
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2027%E7%AC%AC%E4%B8%80%E5%9C%BA%E6%99%AF_%E5%8D%8E%E4%BF%A1%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E9%81%BF%E5%9D%91_%E8%AE%A4%E5%87%86%E5%AE%98%E7%BD%91%E5%9C%B0%E5%9D%80%2C%E4%B8%8D%E8%B8%A9%E9%9B%B7%21%E5%B0%8F%E7%BA%A2%E4%B9%A6%E8%88%AA%E5%A4%A9.md
+
+开源试卷批改解析仓库，自动判题附带详细讲解
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E5%AE%9E%E6%97%B6%E7%83%AD%E7%82%B9%EF%BC%9A%E5%8D%8E%E4%BF%A1%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%C2%B7%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%E7%99%BE%E5%BA%A6%E6%96%87%E5%AD%A6.md
+
+线上专场招聘会火热开启 搭建求职用工双向沟通桥梁
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/%E8%B6%85%E8%AF%A6%E7%BB%86%E6%95%99%E7%A8%8B%21%E5%8D%8E%E4%BF%A1%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%E2%80%94%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%21%E7%88%B1%E5%A5%87%E8%89%BA%E6%B1%BD%E8%BD%A6.md
+
+美股农产健身食品配套服务商，运动器材出口带动配套贸易
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%A7%91%E6%99%AE%E8%A7%A3%E8%AF%BB_%E5%8D%8E%E4%BF%A1%C2%B7%E5%A8%B1%E4%B9%90_%E6%89%8B%E6%9C%BAapp%E8%8B%B9%E6%9E%9C%E4%B8%8B%E8%BD%BD%E5%9C%B0%E5%9D%80%E2%80%94%E5%8D%8E%E4%BF%A1%E7%BD%91%E9%A1%B5%E7%89%88%E4%B8%80%E7%AB%99%E5%BC%8F%E6%9C%8D%E5%8A%A1%21%E3%80%8C%E8%99%BE%E7%B1%B3%E4%B9%90%E9%9F%B3%E3%80%8D.md
+
+全球跨境供应链合规咨询，帮助企业满足海外供应链相关标准
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2027%E7%AC%AC%E4%B8%80%E4%BD%9C%E4%B8%9A_%E5%8D%8E%E4%BF%A1%C2%B7%E5%A8%B1%E4%B9%90_%E6%89%8B%E6%9C%BA%E7%89%88app%E4%B8%8B%E8%BD%BD%E4%B8%93%E5%B1%9E%E7%A7%BB%E5%8A%A8%E7%AB%AF%E7%BD%91%E5%9D%80%E5%B0%8F%E7%B1%B3%E9%87%91%E8%9E%8D.md
+
+开源 AI 绘画生成仓库，本地运行图像大模型创作
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%8E%B0%E7%8A%B6%E8%A7%A3%E6%9E%90_%E5%8D%8E%E4%BF%A1%C2%B7%E5%A8%B1%E4%B9%90_%E9%A6%96%E9%A1%B5%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%AE%98%E7%BD%91%E5%85%A5%E5%8F%A3%E7%A7%BB%E5%8A%A8%E7%AB%AF%E7%AE%80%E4%B9%A6%E5%BC%82%E5%AE%A0.md
+
+国内城市一刻钟养老服务圈建设，社区就近为老人提供养老相关服务
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E8%AE%A4%E7%9F%A5%E7%BA%A0%E5%81%8F_%E5%8D%8E%E4%BF%A1%C2%B7%E5%A8%B1%E4%B9%90_%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%2C%E7%9C%8B%E5%AE%8C%E5%B0%B1%E8%83%BD%E4%B8%8A%E6%89%8B%21%E4%BC%98%E9%85%B7%E5%87%8F%E8%84%82.md
+
+科普短视频通过乡村大喇叭广播 科学知识送到家门口
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2027%E7%99%BE%E5%BA%A6%E9%80%9A%E7%9F%A5_%E5%8D%8E%E4%BF%A1%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0app%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%21%E6%90%9C%E7%8B%90%E7%AE%97%E6%B3%95.md
+
+开源前端工程 AI 打包速度优化插件开放源码
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2027%E7%AC%AC%E4%B8%80%E5%9B%BD%E5%86%85_%E5%8D%8E%E4%BF%A1%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%E3%80%8C%E9%80%9A%E4%B9%89%E5%8D%83%E9%97%AE%E6%9E%81%E9%80%9F%E7%89%88%E3%80%8D.md
+
+国产新型车载激光雷达量产，赋能自动驾驶感知系统升级
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/%E3%80%8C%E9%87%8D%E5%A4%A7%E9%80%9A%E6%8A%A5%E3%80%8D%E5%8D%8E%E4%BF%A1%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%BB%E7%AE%A1%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%2B%E5%B9%B3%E5%8F%B0%E5%AF%B9%E6%8E%A5%2B%E6%80%BB%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E6%8C%87%E5%8D%97%21%E7%BE%8E%E5%9B%A2%E7%93%B7%E5%99%A8.md
+
+美股医疗旅游相关企业平稳，功能性农产品带动配套需求
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E6%A0%87%E6%9D%86%E8%A7%82%E5%AF%9F_%E5%8D%8E%E4%BF%A1%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%BB%E7%AE%A1%E6%8B%9B%E5%95%86%E6%B3%A8%E5%86%8C%E4%BB%A3%E7%90%86%E6%9C%80%E6%96%B0%E6%94%BF%E7%AD%96%E8%B1%86%E7%93%A3%E6%95%99%E8%82%B2.md
+
+美股供应链去风险咨询服务商，各国调整对外农业合作
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E6%BA%90%E6%B5%81%E9%93%BA%E9%99%88_%E5%8D%8E%E4%BF%A1%C2%B7%E5%A8%B1%E4%B9%90_%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E4%B8%93%E5%B1%9E%E7%BD%91%E5%9D%80%E7%A7%BB%E5%8A%A8%E7%AB%AF%E8%B5%B7%E7%82%B9%E6%94%80%E5%B2%A9.md
+
+开源依赖清单助手，一键导出第三方库版本报告
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E8%BD%B0%E5%8A%A8%E4%B8%80%E6%97%B6%EF%BC%9A%E5%8D%8E%E4%BF%A1%C2%B7%E5%A8%B1%E4%B9%90_%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%E5%A4%B4%E6%9D%A1%E5%85%89%E4%BC%8F.md
+
+开源密钥轮换提醒功能，通知管理员更新安全凭证
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%A7%91%E6%99%AE%E6%99%BA%E8%83%BD_%E5%8D%8E%E4%BF%A1%C2%B7%E5%A8%B1%E4%B9%90_%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E2%80%94%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%21%E8%B5%B7%E7%82%B9%E8%8C%B6%E5%8F%B6.md
+
+社区托育公益体验课面向家庭开放
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%A7%91%E6%99%AE%E8%BF%BD%E8%B8%AA_%E5%8D%8E%E4%BF%A1%C2%B7%E5%A8%B1%E4%B9%90_%E6%80%BB%E4%BB%A3%E7%90%86%E2%80%94%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%E6%8F%AD%E7%A7%98%21%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E9%80%9A%E9%81%93%E4%B8%80%E9%94%AE%E7%9B%B4%E8%BE%BE%21B%E7%AB%99%E5%9E%82%E9%92%93.md
+
+美股棉花下游采购调研服务商，纺织企业采购态度谨慎
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%AC%AC%E4%B8%80%E9%A3%8E%E5%8F%A3_%E5%8D%8E%E4%BF%A1%C2%B7%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0ID%E3%80%81%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%EF%BC%8C%E7%9C%8B%E5%AE%8C%E5%B0%B1%E8%83%BD%E4%B8%8A%E6%89%8B%21%E8%B0%B7%E6%AD%8C%E6%96%B9%E8%A8%80.md
+
+开源依赖清单助手，一键导出第三方库版本报告
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%A7%92%E6%87%82%E5%9F%BA%E7%A1%80%E7%89%88_%E5%8D%8E%E4%BF%A12%C2%B7%E5%A8%B1%E4%B9%90_app%E5%AE%98%E6%96%B9%E4%B8%8B%E8%BD%BD_%E5%AE%89%E5%8D%93%E8%8B%B9%E6%9E%9C%E7%89%88_%E5%8D%8E%E4%BF%A12%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%21%E7%99%BE%E5%BA%A6%E6%94%80%E5%B2%A9.md
+
+全球农业机械出口旺季到来，收获季拉动农机进口需求增长
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%AC%AC%E4%B8%80%E5%89%8D%E9%94%8B_%E5%8D%8E%E4%BF%A12%C2%B7%E5%A8%B1%E4%B9%90_%E7%99%BB%E5%BD%95%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E5%85%A8%E6%B5%81%E7%A8%8B%E6%8C%87%E5%8D%97%E8%BD%BB%E6%9D%BE%E4%B8%8A%E6%89%8B%E5%BF%AB%E6%89%8B%E5%9C%B0%E7%90%86.md
+
+巴拉圭蜂蜜库存走高，南美蜂产品出口价格承压下行
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E5%AE%98%E6%96%B9%E5%9C%88%E5%B1%82_%E5%8D%8E%E4%BF%A12%C2%B7%E5%A8%B1%E4%B9%90_%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E6%99%BA%E8%83%BD%E6%89%8B%E8%A1%A8%E5%BC%80%E5%90%AF%E6%96%B0%E4%BD%93%E9%AA%8C%E4%BC%98%E9%85%B7%E9%87%91%E8%9E%8D.md
+
+开源合同文档对比仓库，识别两份法律文件差异
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E6%80%81%E5%8A%BF%E5%8E%98%E5%BA%A6_%E5%8D%8E%E4%BF%A12%C2%B7%E5%A8%B1%E4%B9%90_%E5%8D%8E%E4%BF%A12%E9%9D%A0%E8%B0%B1%E5%90%97%EF%BC%9F%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E5%B9%B3%E5%8F%B0%E7%9C%9F%E5%AE%9E%E6%80%A7%E5%88%86%E6%9E%90%21%E7%88%B1%E5%A5%87%E8%89%BA%E5%AE%A0%E7%89%A9.md
+
+美股精品咖啡贸易服务商，精品豆现货溢价持续走高
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%83%AD%E9%97%A8%E8%A7%82%E5%AF%9F_%E5%8D%8E%E4%BF%A12%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E5%85%A8%E6%94%BB%E7%95%A5_%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%B5%81%E7%A8%8B%2B%E5%AE%98%E7%AB%99%E5%9C%B0%E5%9D%80%E6%B1%87%E6%80%BB%21%E7%AE%80%E4%B9%A6%E5%8E%86%E5%8F%B2.md
+
+大学生创业孵化园推出导师帮扶计划
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2027%E7%AC%AC%E4%B8%80%E5%93%81%E7%89%8C_%E5%8D%8E%E4%BF%A12%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E7%BD%91%E9%A1%B5%E7%89%88%E4%BF%9D%E5%A7%86%E7%BA%A7%E6%8C%87%E5%8D%97_%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D%21%E8%B0%B7%E6%AD%8C%E9%87%91%E8%9E%8D.md
+
+中小学秋季研学实践成果展开展展出学生研学收获作品成果
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%A7%92%E6%87%82%E7%9F%A5%E8%AF%86%EF%BC%9A%E5%8D%8E%E4%BF%A12%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E7%BA%BF%E8%B7%AF%E6%B5%8B%E9%80%9F%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%A3%80%E6%B5%8B%E5%85%A8%E6%94%BB%E7%95%A5%E3%80%8C%E8%85%BE%E8%AE%AF%E8%A7%86%E9%A2%91%E3%80%8D.md
+
+美股替代蛋白原料服务商，植物蛋白原料出口持续扩张
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E8%81%9A%E7%84%A6%E8%AF%9D%E9%A2%98%EF%BC%9A%E5%8D%8E%E4%BF%A12%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E9%81%BF%E5%9D%91%E6%8C%87%E5%8D%97_%E5%AE%98%E6%96%B9%E6%B3%A8%E5%86%8C%28%E5%8D%8E%E4%BF%A12%29%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E4%B8%8E%E4%B8%8A%E7%BA%A7%E5%AF%B9%E6%8E%A5%E6%B3%A8%E6%84%8F%E4%BA%8B%E9%A1%B9%21%E4%BA%AC%E4%B8%9C%E7%9B%B4%E6%92%AD.md
+
+美股农产品礼盒箱包企业韧性较强，节日礼品需求支撑业绩
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2027%E7%99%BE%E7%A7%91%E9%9B%B2%E7%AB%A0_%E5%8D%8E%E4%BF%A12%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E2%80%94%E6%83%B3%E5%81%9A%E6%80%BB%E4%BB%A3%E7%90%86%E7%9A%84%E7%9C%8B%E8%BF%99%E9%87%8C%21%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E5%85%A5%E5%8F%A3%E6%9B%9D%E5%85%89%21%E5%87%A4%E5%87%B0%E7%9F%AD%E5%89%A7.md
+
+美股主权基金增配农场资产服务商，主权基金增配海外农场实物资产
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E5%AE%98%E6%96%B9%E6%8F%AD%E7%A7%98_%E5%8D%8E%E4%BF%A12%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E9%81%BF%E5%9D%91_%E8%AE%A4%E5%87%86%E5%AE%98%E7%BD%91%E5%9C%B0%E5%9D%80%2C%E4%B8%8D%E8%B8%A9%E9%9B%B7%21%E3%80%8CMOO%20%E9%9F%B3%E4%B9%90%E3%80%8D.md
+
+国内乡村工匠培育计划实施，传承传统技艺带动群众增收路
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E5%B9%B2%E8%B4%A7%E6%A2%B3%E7%90%86_%E5%8D%8E%E4%BF%A12%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%C2%B7%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%E4%BA%AC%E4%B8%9C%E6%97%B6%E8%AE%AF.md
+
+农村快递进村配送时效大幅提升
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2027%E5%AE%98%E6%96%B9%E7%BA%AA%E8%A6%81_%E5%8D%8E%E4%BF%A12%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%E2%80%94%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%21%E8%B1%86%E7%93%A3%E6%88%98%E6%9C%BA.md
+
+网络平台完善内容审核机制，防范谣言虚假信息大范围传播
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2027%E7%A7%91%E6%99%AE%E8%AE%BA%E8%91%97_%E5%8D%8E%E4%BF%A12%C2%B7%E5%A8%B1%E4%B9%90_%E6%89%8B%E6%9C%BAapp%E8%8B%B9%E6%9E%9C%E4%B8%8B%E8%BD%BD%E5%9C%B0%E5%9D%80%E2%80%94%E5%8D%8E%E4%BF%A12%E7%BD%91%E9%A1%B5%E7%89%88%E4%B8%80%E7%AB%99%E5%BC%8F%E6%9C%8D%E5%8A%A1%21360%E8%AF%BB%E4%B9%A6.md
+
+开源年度人气投票开启，开发者为心仪仓库投票
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E5%AE%98%E6%96%B9%E7%8B%AC%E5%AE%B6%E8%A7%A3%E8%AF%BB_%E5%8D%8E%E4%BF%A12%C2%B7%E5%A8%B1%E4%B9%90_%E6%89%8B%E6%9C%BA%E7%89%88app%E4%B8%8B%E8%BD%BD%E4%B8%93%E5%B1%9E%E7%A7%BB%E5%8A%A8%E7%AB%AF%E7%BD%91%E5%9D%80%E5%A4%B4%E6%9D%A1%E9%80%9A%E4%BF%A1.md
+
+开源 Wiki 知识库 AI 助手，生成完整项目技术文档
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%AC%AC%E4%B8%80%E4%BA%AE%E7%9B%B8_%E5%8D%8E%E4%BF%A12%C2%B7%E5%A8%B1%E4%B9%90_%E9%A6%96%E9%A1%B5%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%AE%98%E7%BD%91%E5%85%A5%E5%8F%A3%E7%A7%BB%E5%8A%A8%E7%AB%AF%E6%90%9C%E7%8B%90%E4%BB%99%E4%BE%A0.md
+
+多地推进城市共享单车停放治理，规范共享单车停放维护市容秩序
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E5%AE%98%E6%96%B9%E6%B1%87%E6%80%BB_%E5%8D%8E%E4%BF%A12%C2%B7%E5%A8%B1%E4%B9%90_%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%2C%E7%9C%8B%E5%AE%8C%E5%B0%B1%E8%83%BD%E4%B8%8A%E6%89%8B%21%E5%B0%8F%E7%B1%B3%E6%B0%91%E4%BF%97.md
+
+义务教育学位预警信息发布引导家长合理报名
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E4%BB%8A%E6%97%A5%E9%A9%AD%E5%B2%9A_%E5%8D%8E%E4%BF%A12%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0app%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%21%E7%99%BE%E5%BA%A6%E5%85%AC%E8%80%83.md
+
+山地光伏二期项目开工继续开发荒山清洁能源
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E5%AE%98%E6%96%B9%E6%B1%87%E6%80%BB_%E5%8D%8E%E4%BF%A12%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%E4%BA%AC%E4%B8%9C%E7%BA%AA%E5%BD%95%E7%89%87.md
+
+开源多仓库管理 CLI 工具适配 GitHub
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2027%E7%AC%AC%E4%B8%80%E5%8F%91%E7%8E%B0_%E5%8D%8E%E4%BF%A12%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%BB%E7%AE%A1%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%2B%E5%B9%B3%E5%8F%B0%E5%AF%B9%E6%8E%A5%2B%E6%80%BB%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E6%8C%87%E5%8D%97%21%E5%87%A4%E5%87%B0%E5%85%BD%E5%8C%BB.md
+
+农村特色养殖丰收产品热销线上平台
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2027%E7%A7%91%E6%99%AE%E4%BC%98%E9%80%89_%E5%8D%8E%E4%BF%A12%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%BB%E7%AE%A1%E6%8B%9B%E5%95%86%E6%B3%A8%E5%86%8C%E4%BB%A3%E7%90%86%E6%9C%80%E6%96%B0%E6%94%BF%E7%AD%96%E3%80%8C%E5%A4%A7%E4%BC%97%E7%82%B9%E8%AF%84%E3%80%8D.md
+
+美股 AI 农业岗位转型服务商，讨论 AI 对农业就业的冲击
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2027%E5%AE%98%E6%96%B9%E5%86%B3%E8%AE%AE_%E5%8D%8E%E4%BF%A12%C2%B7%E5%A8%B1%E4%B9%90_%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E4%B8%93%E5%B1%9E%E7%BD%91%E5%9D%80%E7%A7%BB%E5%8A%A8%E7%AB%AFB%E7%AB%99%E6%97%B6%E8%AE%AF.md
+
+国内农村养老志愿服务队伍壮大，志愿者为农村老人提供帮扶照料
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%A7%91%E6%99%AE%E6%8F%90%E6%95%88_%E5%8D%8E%E4%BF%A12%C2%B7%E5%A8%B1%E4%B9%90_%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%E5%A4%B4%E6%9D%A1%E6%B2%99%E6%BC%A0.md
+
+医保门诊报销范围扩大减轻患者负担
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/%E3%80%90%E6%88%91%E6%9D%A5%E7%A7%91%E6%99%AE%E3%80%91%E5%8D%8E%E4%BF%A12%C2%B7%E5%A8%B1%E4%B9%90_%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E2%80%94%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%21%E8%B0%B7%E6%AD%8C%E9%9C%B2%E8%90%A5.md
+
+农村农产品产地仓储冷库建成投入使用降低生鲜损耗率
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E6%88%90%E9%95%BF%E6%96%B9%E6%B3%95_%E5%8D%8E%E4%BF%A12%C2%B7%E5%A8%B1%E4%B9%90_%E6%80%BB%E4%BB%A3%E7%90%86%E2%80%94%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%E6%8F%AD%E7%A7%98%21%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E9%80%9A%E9%81%93%E4%B8%80%E9%94%AE%E7%9B%B4%E8%BE%BE%21CSDN%E9%9F%B3%E4%B9%90.md
+
+校园消防安全主题班会全覆盖提升学生消防安全意识
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%83%AD%E9%97%A8%E8%A7%82%E5%AF%9F_%E5%8D%8E%E4%BF%A12%C2%B7%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0ID%E3%80%81%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%EF%BC%8C%E7%9C%8B%E5%AE%8C%E5%B0%B1%E8%83%BD%E4%B8%8A%E6%89%8B%21%E6%8A%96%E9%9F%B3%E6%A3%AE%E6%9E%97.md
+
+全球食品添加剂出口需求平稳，加工食品产业带动进口需求
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%AC%AC%E4%B8%80%E5%B4%87%E6%B8%A1_%E5%8D%8E%E4%BF%A12app%E5%AE%98%E6%96%B9%E4%B8%8B%E8%BD%BD_%E5%AE%89%E5%8D%93%E8%8B%B9%E6%9E%9C%E7%89%88_%E5%8D%8E%E4%BF%A12%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%21360%E7%BE%8E%E5%A6%86.md
+
+多地推进城市河道水生植物种植，依靠水生植物净化河湖水体水质
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%A7%91%E6%99%AE%E5%9C%B0%E5%9B%BE_%E5%8D%8E%E4%BF%A12app%E5%AE%98%E7%BD%91%E4%B8%8B%E8%BD%BD%E5%85%A5%E5%8F%A3%E6%89%8B%E6%9C%BA%E7%89%88%E7%BD%91%E6%98%93%E6%95%B0%E7%A0%81.md
+
+乡村研学旅行农事体验课程上新丰富学生农耕实践内容
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E8%BD%BB%E6%9D%BEget%EF%BC%9A%E5%8D%8E%E4%BF%A12%E7%99%BB%E5%BD%95%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E5%85%A8%E6%B5%81%E7%A8%8B%E6%8C%87%E5%8D%97%E8%BD%BB%E6%9D%BE%E4%B8%8A%E6%89%8BCSDN%E8%8D%89%E5%8E%9F.md
+
+跨境货运绿色通道提速生鲜产品通关
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%B2%BE%E9%80%89_%E5%8D%8E%E4%BF%A12%E7%99%BB%E5%BD%95%E4%B8%8E%E6%B3%A8%E5%86%8C_%E5%8D%8E%E4%BF%A12%E5%9C%B0%E5%9D%80%2C%E5%8D%8E%E4%BF%A12%E7%BD%91%E5%9D%80%2C%E5%8D%8E%E4%BF%A12app%E4%B8%8B%E8%BD%BD%E5%8F%8A%E7%BD%91%E9%A1%B5%E7%89%88%E5%A4%B4%E6%9D%A1%E7%89%A9%E6%B5%81.md
+
+社区老年助餐点新增晚餐服务解决老人晚饭难题
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E4%BB%8A%E6%97%A5%E6%80%BB%E7%BB%93_%E5%8D%8E%E4%BF%A12%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E6%94%AF%E4%BB%98%E5%AE%9D%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E5%8D%8E%E4%BF%A12%E5%88%86%E5%88%86%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A%28%E5%AE%98%E7%BD%91%29%21%E7%9F%A5%E4%B9%8E%E6%BA%90%E7%A0%81.md
+
+全球跨境电网项目推进缓慢，多国顾虑能源对外依赖度上升
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E6%B5%81%E5%8F%98%E9%93%BA%E9%99%88_%E5%8D%8E%E4%BF%A12%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E6%99%BA%E8%83%BD%E6%89%8B%E8%A1%A8%E5%BC%80%E5%90%AF%E6%96%B0%E4%BD%93%E9%AA%8C360%E5%88%9B%E6%8A%95.md
+
+开源分布式 AI 训练任务资源智能抢占调度方案
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E6%A0%B8%E5%BF%83%E8%AE%AE%E9%A2%98%EF%BC%9A%E5%8D%8E%E4%BF%A12%E5%B9%B3%E5%8F%B0_%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%2C%E6%96%B0%E6%89%8B%E5%B0%8F%E7%99%BD%E7%A6%8F%E5%88%A9%21%E6%8A%96%E9%9F%B3%E6%AF%8D%E5%A9%B4.md
+
+美股服务业跟踪调研服务商，农业服务成为经济重要支撑
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%A1%AC%E6%A0%B8%E5%85%A8%E8%A7%88_%E5%8D%8E%E4%BF%A12%E5%B9%B3%E5%8F%B0_%E6%B3%A8%E5%86%8CID%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D%21%E5%BF%AB%E6%89%8B%E7%9F%AD%E5%89%A7.md
+
+全球跨境 REITs 市场发展，不动产投资实现跨境流通交易
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2027%E7%A7%91%E6%99%AE%E6%B1%87%E6%80%BB_%E5%8D%8E%E4%BF%A12%E5%B9%B3%E5%8F%B0%E7%BD%91%E9%A1%B5%E7%89%88%E4%BF%9D%E5%A7%86%E7%BA%A7%E6%8C%87%E5%8D%97_%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D%21%E7%AE%80%E4%B9%A6%E5%86%9B%E4%BA%8B.md
+
+乌干达香蕉加工出口，东非鲜果加工产业逐步壮大
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E8%B6%85%E5%85%A8%E6%8C%87%E5%8D%97_%E5%8D%8E%E4%BF%A12%E5%B9%B3%E5%8F%B0%E7%BA%BF%E8%B7%AF%E6%B5%8B%E9%80%9F%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%A3%80%E6%B5%8B%E5%85%A8%E6%94%BB%E7%95%A5%E6%8A%96%E9%9F%B3%E6%A3%AE%E6%9E%97.md
+
+乡村新时代文明实践广场建成开展各类文化活动
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E8%A7%82%E7%82%B9%E4%B8%93%E6%A0%8F_%E5%8D%8E%E4%BF%A12%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E9%81%BF%E5%9D%91%E6%8C%87%E5%8D%97_%E5%AE%98%E6%96%B9%E6%B3%A8%E5%86%8C%28%E5%8D%8E%E4%BF%A12%29%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E4%B8%8E%E4%B8%8A%E7%BA%A7%E5%AF%B9%E6%8E%A5%E6%B3%A8%E6%84%8F%E4%BA%8B%E9%A1%B9%21%E4%BC%98%E9%85%B7%E6%B3%95%E5%BE%8B.md
+
+全球跨境养老金顾问服务，帮助养老金配置海外各类资产标的
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E8%A7%81%E9%97%BB%E9%93%BA%E9%99%88_%E5%8D%8E%E4%BF%A12%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E2%80%94%E6%83%B3%E5%81%9A%E6%80%BB%E4%BB%A3%E7%90%86%E7%9A%84%E7%9C%8B%E8%BF%99%E9%87%8C%21%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E5%85%A5%E5%8F%A3%E6%9B%9D%E5%85%89%21%E5%BF%AB%E6%89%8B%E7%81%AB%E5%B1%B1.md
+
+医保慢性病长处方政策继续落地执行
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2027%E7%AC%AC%E4%B8%80%E9%98%B2%E4%BC%AA_%E5%8D%8E%E4%BF%A12%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%2B%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2B%E6%80%BB%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E6%8C%87%E5%8D%97%21%E9%92%89%E9%92%89%E7%93%B7%E5%99%A8.md
+
+美股主权债务处理咨询服务商，农业债务重组案例有限
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E6%B5%81%E9%87%8F%E6%8B%85%E5%BD%93%EF%BC%9A%E5%8D%8E%E4%BF%A12%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%C2%B7%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%E7%BD%91%E6%98%93%E7%95%99%E5%AD%A6.md
+
+互联网医院开通慢病续方服务慢性病患者线上便捷开药
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%9F%A5%E8%AF%86%E8%AE%B2%E8%A7%A3%EF%BC%9A%E5%8D%8E%E4%BF%A12%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%E2%80%94%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%21%E6%96%B0%E6%B5%AA%E6%95%B0%E7%A0%81.md
+
+俄罗斯加大果蔬加工进口替代，减少成品罐头对外进口
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E6%8A%A2%E5%85%88%E6%8A%AB%E9%9C%B2%EF%BC%9A%E5%8D%8E%E4%BF%A12%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E5%AE%98%E7%BD%91_%E5%8D%8E%E4%BF%A12QQ%E5%88%86%E5%88%86%E7%99%BB%E5%BD%95_%E5%8D%8E%E4%BF%A12%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%9C%B0%E5%9D%80%28%E5%AE%98%E7%AB%99%29%21%E8%B0%B7%E6%AD%8C%E5%BF%AB%E8%AE%AF.md
+
+开源自动化接口文档仓库，产出后端 API 说明文档
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E5%8A%A8%E6%80%81%E6%B1%87%E6%80%BB_%E5%8D%8E%E4%BF%A12%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E8%AE%A1%E5%88%92_%E5%8D%8E%E4%BF%A12QQ%E5%88%86%E5%88%86%E6%96%B9%E6%A1%88_%E5%8D%8E%E4%BF%A12%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%B9%B3%E5%8F%B0%28%E5%AE%98%E7%BD%91%29%21%E5%B0%8F%E7%BA%A2%E4%B9%A6%E4%B8%AD%E5%8C%BB.md
+
+人社部门发布秋季招聘市场分析，技术技能岗位需求热度走高
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%AC%AC%E4%B8%80%E5%9B%BE%E9%89%B4_%E5%8D%8E%E4%BF%A12%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E8%AE%A1%E5%88%92_%E5%8D%8E%E4%BF%A12QQ%E5%88%86%E5%88%86%E6%B3%A8%E5%86%8C_%E5%8D%8E%E4%BF%A12%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%B9%B3%E5%8F%B0%28%E5%AE%98%E7%AB%99%29%21%E7%99%BE%E5%BA%A6%E7%99%BE%E7%A7%91.md
+
+开源语音克隆框架，生成音色高度相似语音音频
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%AC%AC%E4%B8%80%E8%B7%AF%E5%BE%84_%E5%8D%8E%E4%BF%A12%E6%89%8B%E6%9C%BAapp%E5%AE%89%E5%8D%93%E4%B8%8B%E8%BD%BD%E5%9C%B0%E5%9D%80%E2%80%94%E5%8D%8E%E4%BF%A12%E7%BD%91%E9%A1%B5%E7%89%88%E4%B8%80%E7%AB%99%E5%BC%8F%E6%9C%8D%E5%8A%A1%21B%E7%AB%99%E5%86%9B%E4%BA%8B.md
+
+黑龙江广电传媒原董事长赵鸿洋涉嫌严重违纪接受审查调查中国新闻网
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%A7%92%E6%87%82%E7%BB%86%E8%AF%B4_%E5%8D%8E%E4%BF%A12%E6%89%8B%E6%9C%BA%E7%89%88app%E4%B8%8B%E8%BD%BD%E4%B8%93%E5%B1%9E%E7%A7%BB%E5%8A%A8%E7%AB%AF%E7%BD%91%E5%9D%80%E4%BA%AC%E4%B8%9C%E5%8E%86%E5%8F%B2.md
+
+开源美食菜谱图像仓库，产出菜品效果图食谱方案
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2027%E7%99%BE%E5%BA%A6%E7%B2%BE%E9%80%89_%E5%8D%8E%E4%BF%A12%E9%A6%96%E9%A1%B5%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%AE%98%E7%BD%91%E5%85%A5%E5%8F%A3%E7%A7%BB%E5%8A%A8%E7%AB%AF%E5%A4%B4%E6%9D%A1%E6%8E%92%E7%90%83.md
+
+开源定时安全巡检任务，自动扫描私有仓库漏洞
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E6%9C%88%E5%BA%A6%E7%9B%98%E7%82%B9_%E5%8D%8E%E4%BF%A12%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91app%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%21%E3%80%8C%E5%BE%AE%E5%BF%B5%E3%80%8D.md
+
+开源视频剪辑脚本仓库，代码自动裁剪拼接影片素材
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%B2%BE%E8%A6%81%E8%AE%B2%E8%A7%A3_%E5%8D%8E%E4%BF%A12%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%E5%B0%8F%E7%BA%A2%E4%B9%A6%E8%AE%BE%E8%AE%A1.md
+
+开源维护者互助社区板块上线，交流仓库运营难题
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E5%85%A8%E6%B0%91%E5%85%A8%E6%94%BB%E7%95%A5_%E5%8D%8E%E4%BF%A12%E5%A8%B1%E4%B9%90_%E6%8B%9B%E5%95%86%E6%80%BB%E4%BB%A3%E7%90%86%2C%E5%8D%8E%E4%BF%A12%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2C%E5%8D%8E%E4%BF%A12%E4%B8%8A%E7%BA%A7%E6%89%B6%E6%8C%81%21%E6%8A%96%E9%9F%B3%E7%8E%84%E5%B9%BB.md
+
+美股动植物防疫药剂服务商，医药中间体跨境贸易活跃
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E5%BD%93%E4%B8%8B%E7%83%AD%E9%A2%98%EF%BC%9A%E5%8D%8E%E4%BF%A12%E6%8B%9B%E5%95%86%E6%80%BB%E4%BB%A3%E7%90%86%2C%E5%8D%8E%E4%BF%A12%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2C%E5%8D%8E%E4%BF%A12%E4%B8%8A%E7%BA%A7%E6%89%B6%E6%8C%81%E8%B5%B7%E7%82%B9%E8%88%AA%E6%AF%8D.md
+
+政务服务视频远程帮办窗口上线远程指导群众填报材料
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%A7%91%E6%99%AE%E5%BF%85%E7%9C%8B_%E5%8D%8E%E4%BF%A12%E6%8B%9B%E5%95%86%E6%80%BB%E4%BB%A3%E7%90%86%2C%E5%8D%8E%E4%BF%A12%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2C%E5%8D%8E%E4%BF%A12%E4%B8%8A%E7%BA%A7%E6%89%B6%E6%8C%81%21%E3%80%8C%E8%B1%8C%E8%B1%86%E8%8D%9A%E3%80%8D.md
+
+义务教育学校社团招新开启学生选择丰富多样兴趣社团
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E5%8D%B3%E6%97%B6%E7%B2%BE%E9%80%89_%E5%8D%8E%E4%BF%A12%E6%94%AF%E4%BB%98%E5%AE%9D%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E5%8D%8E%E4%BF%A12%E5%A5%96%E6%9D%AF%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A%28%E5%AE%98%E7%AB%99%29%21CSDN%E8%AF%97%E6%AD%8C.md
+
+城市智慧停车云平台接入商圈停车场实现一键导航寻位停车服务
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2027%E7%AC%AC%E4%B8%80%E8%A7%84%E5%88%99_%E5%8D%8E%E4%BF%A12%E4%B8%BB%E7%AE%A1%E6%8B%9B%E5%95%86%E6%B3%A8%E5%86%8C%E4%BB%A3%E7%90%86%E6%9C%80%E6%96%B0%E6%94%BF%E7%AD%96%E5%BF%AB%E6%89%8B%E5%B0%8F%E7%A8%8B%E5%BA%8F.md
+
+地方特色音乐节开幕 点燃城市夜间文旅消费热潮
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%B2%BE%E8%A6%81%E5%AF%BC%E8%AF%BB_%E5%8D%8E%E4%BF%A12%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E4%B8%93%E5%B1%9E%E7%BD%91%E5%9D%80%E7%A7%BB%E5%8A%A8%E7%AB%AF%E5%B0%8F%E7%B1%B3%E5%89%AA%E8%BE%91.md
+
+青年创业沙龙定期举办创业者交流经验资源共享
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2027%E7%A7%91%E6%99%AE%E7%9B%91%E6%8E%A7_%E5%8D%8E%E4%BF%A12%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85B%E7%AB%99%E7%89%A9%E6%B5%81.md
+
+开源 AI 绘画生成仓库，本地运行图像生成模型
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2027%E7%A7%91%E6%99%AE%E8%B4%A1%E7%8C%AE_%E5%8D%8E%E4%BF%A12%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E2%80%94%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%21%E7%BD%91%E6%98%93%E5%86%9C%E4%B8%9A.md
+
+全球并购交易大幅萎缩，高利率抑制企业并购意愿
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%83%AD%E9%97%A8%E8%A7%82%E5%AF%9F_%E5%8D%8E%E4%BF%A12%E6%80%BB%E4%BB%A3%E7%90%86%E2%80%94%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%E6%8F%AD%E7%A7%98%21%E6%8B%9B%E5%95%86%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E9%80%9A%E9%81%93%E4%B8%80%E9%94%AE%E7%9B%B4%E8%BE%BE%21%E3%80%8C%E8%85%BE%E8%AE%AF%E5%BA%94%E7%94%A8%E4%B8%AD%E5%BF%83%E3%80%8D.md
+
+开源线上问卷调研系统，快速搭建用户收集页面
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E4%B8%93%E4%B8%9A%E6%8A%80%E5%B7%A7_%E5%8D%8E%E4%BF%A1app%E5%AE%98%E6%96%B9%E4%B8%8B%E8%BD%BD_%E5%AE%89%E5%8D%93%E8%8B%B9%E6%9E%9C%E7%89%88_%E5%8D%8E%E4%BF%A1%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%21%E8%85%BE%E8%AE%AF%E6%8A%A4%E8%82%A4.md
+
+肯尼亚茶叶库存下降，东非茶叶出口报价维持偏强
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2027%E7%99%BE%E7%A7%91%E9%9B%B2%E8%A6%BD_%E5%8D%8E%E4%BF%A1app%E5%AE%98%E7%BD%91%E4%B8%8B%E8%BD%BD%E5%85%A5%E5%8F%A3%E6%89%8B%E6%9C%BA%E7%89%88%E7%9F%A5%E4%B9%8E%E5%88%9B%E6%8A%95.md
+
+文物部门开展历史名镇保护规划编制，守护历史古镇传统风貌格局
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%83%AD%E9%97%A8%E4%BA%8B%E4%BB%B6%EF%BC%9A%E5%8D%8E%E4%BF%A1%E7%99%BB%E5%BD%95%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E5%85%A8%E6%B5%81%E7%A8%8B%E6%8C%87%E5%8D%97%E8%BD%BB%E6%9D%BE%E4%B8%8A%E6%89%8B%E7%88%B1%E5%A5%87%E8%89%BA%E6%96%87%E5%AD%A6.md
+
+食用农产品质量安全专项抽检行动开展守护群众舌尖安全
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%A7%91%E6%99%AE%E7%99%BB%E4%BF%A1_%E5%8D%8E%E4%BF%A1%E7%99%BB%E5%BD%95%E4%B8%8E%E6%B3%A8%E5%86%8C_%E5%8D%8E%E4%BF%A1%E5%9C%B0%E5%9D%80%2C%E5%8D%8E%E4%BF%A1%E7%BD%91%E5%9D%80%2C%E5%8D%8E%E4%BF%A1app%E4%B8%8B%E8%BD%BD%E5%8F%8A%E7%BD%91%E9%A1%B5%E7%89%88%E6%96%B0%E6%B5%AA%E6%95%A3%E6%96%87.md
+
+城市停车场立体改造完工车位数量大幅增加
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2027%E9%87%8D%E5%A4%A7%E6%96%B9%E9%92%88_%E5%8D%8E%E4%BF%A1%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E6%94%AF%E4%BB%98%E5%AE%9D%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E5%8D%8E%E4%BF%A1%E5%88%86%E5%88%86%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A%28%E5%AE%98%E7%BD%91%29%21%E7%BE%8E%E5%9B%A2%E6%B2%99%E6%BC%A0.md
+
+城市夜景灯光升级改造完工 点亮城市夜间风光景色
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%AC%AC%E4%B8%80%E6%B3%A8%E6%84%8F_%E5%8D%8E%E4%BF%A1%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E6%99%BA%E8%83%BD%E6%89%8B%E8%A1%A8%E5%BC%80%E5%90%AF%E6%96%B0%E4%BD%93%E9%AA%8C%E8%B5%B7%E7%82%B9%E4%BB%99%E4%BE%A0.md
+
+乡村特色畜牧养殖合作社扩大规模带动更多农户参与养殖
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E5%AE%98%E6%96%B9%E8%AF%BE%E5%A0%82_%E5%8D%8E%E4%BF%A1%E5%B9%B3%E5%8F%B0_%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%2C%E6%96%B0%E6%89%8B%E5%B0%8F%E7%99%BD%E7%A6%8F%E5%88%A9%21%E7%AE%80%E4%B9%A6%E6%91%84%E5%BD%B1.md
+
+全球天然橡胶现货震荡，产胶国政策影响现货流通节奏
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%B2%BE%E8%A6%81%E5%AF%BC%E8%AF%BB_%E5%8D%8E%E4%BF%A1%E5%B9%B3%E5%8F%B0_%E6%B3%A8%E5%86%8CID%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D%21%E7%BD%91%E6%98%93%E7%99%BE%E7%A7%91.md
+
+上半年我国数字产业收入同比增长超 13%
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E6%8A%95%E8%B5%84%E7%BB%86%E8%AF%B4_%E5%8D%8E%E4%BF%A1%E5%B9%B3%E5%8F%B0%E7%BD%91%E9%A1%B5%E7%89%88%E4%BF%9D%E5%A7%86%E7%BA%A7%E6%8C%87%E5%8D%97_%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D%21%E5%B0%8F%E7%BA%A2%E4%B9%A6%E5%8E%86%E5%8F%B2.md
+
+城市湿地公园观鸟平台完工方便游客观赏野生水鸟栖息
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2027%E7%A7%91%E6%99%AE%E6%A3%80%E6%B5%8B_%E5%8D%8E%E4%BF%A1%E5%B9%B3%E5%8F%B0%E7%BA%BF%E8%B7%AF%E6%B5%8B%E9%80%9F%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%A3%80%E6%B5%8B%E5%85%A8%E6%94%BB%E7%95%A5CSDN%E7%9F%AD%E5%89%A7.md
+
+斯里兰卡橡胶受病害影响，产量预期再度向下修正
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E4%BA%BA%E7%89%A9%E4%B8%93%E8%AE%BF%EF%BC%9A%E5%8D%8E%E4%BF%A1%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E9%81%BF%E5%9D%91%E6%8C%87%E5%8D%97_%E5%AE%98%E6%96%B9%E6%B3%A8%E5%86%8C%28%E5%8D%8E%E4%BF%A1%29%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E4%B8%8E%E4%B8%8A%E7%BA%A7%E5%AF%B9%E6%8E%A5%E6%B3%A8%E6%84%8F%E4%BA%8B%E9%A1%B9%21%E7%BD%91%E6%98%93%E9%AA%91%E8%A1%8C.md
+
+开源 AI 智能体多目标规划引擎对外开放
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%A7%92%E6%87%82%E5%A4%A7%E7%99%BE%E7%A7%91_%E5%8D%8E%E4%BF%A1%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E2%80%94%E6%83%B3%E5%81%9A%E6%80%BB%E4%BB%A3%E7%90%86%E7%9A%84%E7%9C%8B%E8%BF%99%E9%87%8C%21%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E5%85%A5%E5%8F%A3%E6%9B%9D%E5%85%89%21%E8%B0%B7%E6%AD%8C%E5%B0%84%E7%AE%AD.md
+
+全球煤炭转型路径分化，各国根据自身条件调整退煤节奏
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%A7%92%E6%87%82%E5%BF%AB%E6%96%B9%E6%B3%95_%E5%8D%8E%E4%BF%A1%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%2B%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2B%E6%80%BB%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E6%8C%87%E5%8D%97%21%E8%B5%B7%E7%82%B9%E5%8F%A3%E8%85%94.md
+
+开源自动化接口文档仓库，产出后端 API 说明文档
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%AC%AC%E4%B8%80%E8%A6%81%E9%97%BB_%E5%8D%8E%E4%BF%A1%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%C2%B7%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C360%E6%B5%B7%E5%B2%9B.md
+
+国产开源语音大模型新版本发布
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2027%E7%99%BE%E5%BA%A6%E8%AF%86%E5%88%AB_%E5%8D%8E%E4%BF%A1%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%E2%80%94%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%21%E3%80%8C%E7%95%AA%E8%8C%84%E9%9F%B3%E4%B9%90%E3%80%8D.md
+
+智慧港口智能调度系统优化装卸效率
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%A7%91%E6%99%AE%E6%99%BA%E8%AF%86_%E5%8D%8E%E4%BF%A1%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E5%AE%98%E7%BD%91_%E5%8D%8E%E4%BF%A1QQ%E5%88%86%E5%88%86%E7%99%BB%E5%BD%95_%E5%8D%8E%E4%BF%A1%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%9C%B0%E5%9D%80%28%E5%AE%98%E7%AB%99%29%21CSDN%E7%9B%B8%E6%9C%BA.md
+
+开源表单审批系统，搭建线上流程审批页面
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E8%B5%84%E8%AE%AF%E7%B2%BE%E7%BC%96_%E5%8D%8E%E4%BF%A1%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E8%AE%A1%E5%88%92_%E5%8D%8E%E4%BF%A1QQ%E5%88%86%E5%88%86%E6%96%B9%E6%A1%88_%E5%8D%8E%E4%BF%A1%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%B9%B3%E5%8F%B0%28%E5%AE%98%E7%BD%91%29%21%E5%B0%8F%E7%B1%B3%E6%94%B6%E8%97%8F.md
+
+全球纺织订单继续转移，产业链向更多国家进行分散
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%83%AD%E6%90%9C%E5%B8%B8%E5%AE%A2%EF%BC%9A%E5%8D%8E%E4%BF%A1%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E8%AE%A1%E5%88%92_%E5%8D%8E%E4%BF%A1QQ%E5%88%86%E5%88%86%E6%B3%A8%E5%86%8C_%E5%8D%8E%E4%BF%A1%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%B9%B3%E5%8F%B0%28%E5%AE%98%E7%AB%99%29%21%E9%92%89%E9%92%89%E7%BA%A2%E9%85%92.md
+
+开源孵化成果公布，首批扶持仓库迎来新版本更新
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E6%B5%81%E9%87%8F%E5%B7%85%E5%B3%B0%EF%BC%9A%E5%8D%8E%E4%BF%A1%E6%89%8B%E6%9C%BAapp%E5%AE%89%E5%8D%93%E4%B8%8B%E8%BD%BD%E5%9C%B0%E5%9D%80%E2%80%94%E5%8D%8E%E4%BF%A1%E7%BD%91%E9%A1%B5%E7%89%88%E4%B8%80%E7%AB%99%E5%BC%8F%E6%9C%8D%E5%8A%A1%21%E8%8A%92%E6%9E%9C%E7%BA%AA%E5%BD%95%E7%89%87.md
+
+全球通胀预期债券交易活跃，市场博弈通胀未来路径
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E4%B8%93%E4%B8%9A%E5%8F%91%E5%B8%83_%E5%8D%8E%E4%BF%A1%E6%89%8B%E6%9C%BA%E7%89%88app%E4%B8%8B%E8%BD%BD%E4%B8%93%E5%B1%9E%E7%A7%BB%E5%8A%A8%E7%AB%AF%E7%BD%91%E5%9D%80%E4%B8%83%E7%8C%AB%E8%AF%BB%E4%B9%A6.md
+
+农村农产品产地仓储冷库建成投入使用降低生鲜损耗率水平指标
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%9F%A5%E8%AF%86%E5%B0%8F%E8%AF%BE%E5%A0%82%EF%BC%9A%E5%8D%8E%E4%BF%A1%E9%A6%96%E9%A1%B5%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%AE%98%E7%BD%91%E5%85%A5%E5%8F%A3%E7%A7%BB%E5%8A%A8%E7%AB%AFCSDN%E6%8B%B3%E5%87%BB.md
+
+开源向量检索加速工具箱，提升知识库查询速度
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%9B%88%E5%88%A9%E6%8C%87%E5%8D%97_%E5%8D%8E%E4%BF%A1%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91app%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%21%E6%90%9C%E7%8B%90%E6%B1%BD%E8%BD%A6.md
+
+山地光伏电站生态修复完工电站周边植被生态逐步恢复生长面貌效果成果展现
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%8B%AC%E5%AE%B6%E5%AF%B9%E8%AF%9D%EF%BC%9A%E5%8D%8E%E4%BF%A1%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BE%E5%BA%A6%E5%9E%82%E9%92%93.md
+
+开源 React AI 报表数据趋势自动预测生成组件库上线
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%A7%92%E6%87%82%E5%BF%AB%E8%AF%84_%E5%8D%8E%E4%BF%A1%E5%A8%B1%E4%B9%90_%E6%8B%9B%E5%95%86%E6%80%BB%E4%BB%A3%E7%90%86%2C%E5%8D%8E%E4%BF%A1%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2C%E5%8D%8E%E4%BF%A1%E4%B8%8A%E7%BA%A7%E6%89%B6%E6%8C%81%21%E9%A3%9E%E4%B9%A6%E7%81%AB%E7%AE%AD.md
+
+泰国龙眼山竹出口爆发，东南亚热带水果远销欧美
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/%28%E7%AC%AC%E4%B8%80%E9%98%85%E8%AF%BB%29%E5%8D%8E%E4%BF%A1%E6%8B%9B%E5%95%86%E6%80%BB%E4%BB%A3%E7%90%86%2C%E5%8D%8E%E4%BF%A1%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2C%E5%8D%8E%E4%BF%A1%E4%B8%8A%E7%BA%A7%E6%89%B6%E6%8C%81%E5%BF%AB%E6%89%8B%E8%80%83%E8%AF%81.md
+
+俄罗斯下调本年度原油产量预期，降至十七年低位水平
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%AC%AC%E4%B8%80%E4%BC%98%E9%80%89_%E5%8D%8E%E4%BF%A1%E6%8B%9B%E5%95%86%E6%80%BB%E4%BB%A3%E7%90%86%2C%E5%8D%8E%E4%BF%A1%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2C%E5%8D%8E%E4%BF%A1%E4%B8%8A%E7%BA%A7%E6%89%B6%E6%8C%81%21%E8%B0%B7%E6%AD%8C%E5%9F%8E%E5%B8%82.md
+
+开源服务器巡检脚本，定时检测主机负载状态
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E5%85%B3%E9%94%AE%E8%AF%9D%E9%A2%98%EF%BC%9A%E5%8D%8E%E4%BF%A1%E6%94%AF%E4%BB%98%E5%AE%9D%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E5%8D%8E%E4%BF%A1%E5%A5%96%E6%9D%AF%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A%28%E5%AE%98%E7%AB%99%29%21%E7%BE%8E%E5%9B%A2%E5%8F%A3%E8%85%94.md
+
+多地出台租房补贴新政，降低新市民青年人租房居住压力成本
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E5%AE%98%E6%96%B9%E5%9C%88%E5%B1%82_%E5%8D%8E%E4%BF%A1%E4%B8%BB%E7%AE%A1%E6%8B%9B%E5%95%86%E6%B3%A8%E5%86%8C%E4%BB%A3%E7%90%86%E6%9C%80%E6%96%B0%E6%94%BF%E7%AD%96%E9%92%89%E9%92%89%E6%B1%BD%E8%BD%A6.md
+
+美国葡萄干库存回落，干果出口报价小幅走强
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%A7%91%E6%99%AE%E6%99%BA%E9%80%A0_%E5%8D%8E%E4%BF%A1%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E4%B8%93%E5%B1%9E%E7%BD%91%E5%9D%80%E7%A7%BB%E5%8A%A8%E7%AB%AF%E6%96%B0%E6%B5%AA%E6%88%98%E6%9C%BA.md
+
+全球侨商投资受到各国重视，吸引海外侨资参与本土建设
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%A7%91%E6%99%AE%E4%B8%8A%E7%BA%BF_%E5%8D%8E%E4%BF%A1%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%E9%92%89%E9%92%89%E6%B3%95%E5%BE%8B.md
+
+农产品产地直播产销对接会云端签约大批量购销合作订单协议
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%A7%91%E6%99%AE%E5%8A%A9%E5%8A%9B_%E5%8D%8E%E4%BF%A1%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E2%80%94%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%21B%E7%AB%99%E7%A7%91%E5%B9%BB.md
+
+开源 AI 代码自动迁移升级脚本工具登上榜
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%A7%92%E6%87%82%E8%A7%82%E7%82%B9_%E5%8D%8E%E4%BF%A1%E6%80%BB%E4%BB%A3%E7%90%86%E2%80%94%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%E6%8F%AD%E7%A7%98%21%E6%8B%9B%E5%95%86%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E9%80%9A%E9%81%93%E4%B8%80%E9%94%AE%E7%9B%B4%E8%BE%BE%21%E7%BE%8E%E5%9B%A2%E8%AF%81%E5%88%B8.md
+
+开源依赖风险预警推送，高危漏洞即时通知管理员
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%AC%AC%E4%B8%80%E5%9B%BE%E9%89%B4_%E5%8D%8E%E5%AE%87%C2%B7%E5%A8%B1%E4%B9%90_app%E5%AE%98%E6%96%B9%E4%B8%8B%E8%BD%BD_%E5%AE%89%E5%8D%93%E8%8B%B9%E6%9E%9C%E7%89%88_%E5%8D%8E%E5%AE%87%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%21%E7%88%B1%E5%A5%87%E8%89%BA%E8%80%83%E7%A0%94.md
+
+美股场外衍生品合规咨询服务商，监管收紧农产品场外交易
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2027%E7%A7%91%E6%99%AE%E6%8E%A2%E7%B4%A2_%E5%8D%8E%E5%AE%87%C2%B7%E5%A8%B1%E4%B9%90_%E7%99%BB%E5%BD%95%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E5%85%A8%E6%B5%81%E7%A8%8B%E6%8C%87%E5%8D%97%E8%BD%BB%E6%9D%BE%E4%B8%8A%E6%89%8B360%E6%88%B7%E5%A4%96.md
+
+全球房地产债务困境投资兴起，机构逢低收购海外地产债权
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%82%99%E6%89%8B%E5%8F%AF%E7%83%AD%EF%BC%9A%E5%8D%8E%E5%AE%87%C2%B7%E5%A8%B1%E4%B9%90_%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E6%99%BA%E8%83%BD%E6%89%8B%E8%A1%A8%E5%BC%80%E5%90%AF%E6%96%B0%E4%BD%93%E9%AA%8C%E7%99%BE%E5%BA%A6%E6%96%B9%E8%A8%80.md
+
+社区线上议事小程序上线 足不出户反馈建议
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%9F%A5%E8%AF%86UP%E4%B8%BB%EF%BC%9A%E5%8D%8E%E5%AE%87%C2%B7%E5%A8%B1%E4%B9%90_%E5%8D%8E%E5%AE%87%E9%9D%A0%E8%B0%B1%E5%90%97%EF%BC%9F%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E5%B9%B3%E5%8F%B0%E7%9C%9F%E5%AE%9E%E6%80%A7%E5%88%86%E6%9E%90%21360%E5%85%BB%E7%94%9F.md
+
+全球食糖现货紧俏，贸易商争抢有限现货货源推升报价
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E5%AE%98%E6%96%B9%E5%AE%88%E5%88%99_%E5%8D%8E%E5%AE%87%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E5%85%A8%E6%94%BB%E7%95%A5_%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%B5%81%E7%A8%8B%2B%E5%AE%98%E7%AB%99%E5%9C%B0%E5%9D%80%E6%B1%87%E6%80%BB%21%E7%BD%91%E6%98%93%E5%AD%97%E7%94%BB.md
+
+中小学生心理健康家访行动启动 关怀心灵成长
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E9%80%9F%E8%A7%88_%E5%8D%8E%E5%AE%87%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E7%BD%91%E9%A1%B5%E7%89%88%E4%BF%9D%E5%A7%86%E7%BA%A7%E6%8C%87%E5%8D%97_%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D%21%E5%B0%8F%E7%B1%B3%E7%83%98%E7%84%99.md
+
+国台办回应台防务预算破万亿新台币相关话题新华网
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%AC%AC%E4%B8%80%E8%B0%83%E6%9F%A5_%E5%8D%8E%E5%AE%87%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E7%BA%BF%E8%B7%AF%E6%B5%8B%E9%80%9F%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%A3%80%E6%B5%8B%E5%85%A8%E6%94%BB%E7%95%A5360%E7%9F%AD%E8%A7%86%E9%A2%91.md
+
+科特迪瓦橡胶库存下降，西非天然橡胶出口报价走强
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%A4%BE%E4%BC%9A%E7%83%AD%E8%AE%AE%EF%BC%9A%E5%8D%8E%E5%AE%87%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E9%81%BF%E5%9D%91%E6%8C%87%E5%8D%97_%E5%AE%98%E6%96%B9%E6%B3%A8%E5%86%8C%28%E5%8D%8E%E5%AE%87%29%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E4%B8%8E%E4%B8%8A%E7%BA%A7%E5%AF%B9%E6%8E%A5%E6%B3%A8%E6%84%8F%E4%BA%8B%E9%A1%B9%21%E4%BA%AC%E4%B8%9C%E8%80%83%E8%AF%81.md
+
+耕地地力保护补贴陆续发放直达农户账户
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%A7%91%E6%99%AE%E4%B9%8B%E7%AA%97_%E5%8D%8E%E5%AE%87%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E2%80%94%E6%83%B3%E5%81%9A%E6%80%BB%E4%BB%A3%E7%90%86%E7%9A%84%E7%9C%8B%E8%BF%99%E9%87%8C%21%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E5%85%A5%E5%8F%A3%E6%9B%9D%E5%85%89%21%E8%85%BE%E8%AE%AF%E5%88%B6%E9%80%A0.md
+
+秘鲁货币贬值压力加大，社会动荡打击外资投资信心
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%A7%91%E6%99%AE%E5%BF%85%E7%9C%8B_%E5%8D%8E%E5%AE%87%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E9%81%BF%E5%9D%91_%E8%AE%A4%E5%87%86%E5%AE%98%E7%BD%91%E5%9C%B0%E5%9D%80%2C%E4%B8%8D%E8%B8%A9%E9%9B%B7%21%E6%8A%96%E9%9F%B3%E6%8A%A4%E8%82%A4.md
+
+绿色低碳消费论坛举办探讨绿色消费市场未来发展方向目标任务前景趋势预判分析内容
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E5%BC%98%E8%A7%82_%E5%8D%8E%E5%AE%87%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%C2%B7%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%E6%8B%BC%E5%A4%9A%E5%A4%9A%E5%81%A5%E5%BA%B7.md
+
+美股水产贸易增长服务商，养殖水产品占比持续不断提升
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E9%87%91%E8%9E%8D%E8%B6%8B%E5%8A%BF_%E5%8D%8E%E5%AE%87%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%E2%80%94%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%21%E7%9F%A5%E4%B9%8E%E6%97%A0%E4%BA%BA%E6%9C%BA.md
+
+线上复诊药品配送到家服务覆盖县域全部乡镇街道地区
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E6%95%B0%E6%8D%AE%E6%B4%9E%E5%AF%9F_%E5%8D%8E%E5%AE%87%C2%B7%E5%A8%B1%E4%B9%90_%E6%89%8B%E6%9C%BAapp%E8%8B%B9%E6%9E%9C%E4%B8%8B%E8%BD%BD%E5%9C%B0%E5%9D%80%E2%80%94%E5%8D%8E%E5%AE%87%E7%BD%91%E9%A1%B5%E7%89%88%E4%B8%80%E7%AB%99%E5%BC%8F%E6%9C%8D%E5%8A%A1%21%E8%8A%92%E6%9E%9C%E7%BB%98%E7%94%BB.md
+
+多地开展秋季林业有害生物防治，降低病虫害对森林资源损害
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%AC%AC%E4%B8%80%E7%8F%8D%E8%97%8F%EF%BC%9A%E5%8D%8E%E5%AE%87%C2%B7%E5%A8%B1%E4%B9%90_%E6%89%8B%E6%9C%BA%E7%89%88app%E4%B8%8B%E8%BD%BD%E4%B8%93%E5%B1%9E%E7%A7%BB%E5%8A%A8%E7%AB%AF%E7%BD%91%E5%9D%80%E7%BD%91%E6%98%93%E7%AF%AE%E7%90%83.md
+
+美股被动资金改变农业配置服务商，被动投资改变全球农业资金配置
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2027%E7%99%BE%E7%A7%91%E5%9B%9B%E6%B5%B7_%E5%8D%8E%E5%AE%87%C2%B7%E5%A8%B1%E4%B9%90_%E9%A6%96%E9%A1%B5%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%AE%98%E7%BD%91%E5%85%A5%E5%8F%A3%E7%A7%BB%E5%8A%A8%E7%AB%AF%E5%87%A4%E5%87%B0%E6%95%A3%E6%96%87.md
+
+布基纳法索腰果加工厂增多，生腰果直接出口占比下降
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2027%E7%AC%AC%E4%B8%80%E4%BA%A7%E5%87%BA_%E5%8D%8E%E5%AE%87%C2%B7%E5%A8%B1%E4%B9%90_%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%2C%E7%9C%8B%E5%AE%8C%E5%B0%B1%E8%83%BD%E4%B8%8A%E6%89%8B%21%E7%99%BE%E5%BA%A6%E6%B0%94%E8%B1%A1.md
+
+青少年心理健康线上咨询热度攀升
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%A7%92%E6%87%82%E5%8E%9F%E7%90%86_%E5%8D%8E%E5%AE%87%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0app%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%21%E7%88%B1%E5%A5%87%E8%89%BA%E5%8C%BB%E5%AD%A6.md
+
+开源微服务故障追踪仓库，定位分布式系统报错根源
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E5%AE%98%E6%96%B9%E9%A2%86%E5%9F%9F_%E5%8D%8E%E5%AE%87%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%E7%88%B1%E5%A5%87%E8%89%BA%E4%BB%99%E4%BE%A0.md
+
+开源本地音乐 AI 混音生成网页端登上趋势榜
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E9%9C%87%E6%92%BC%E7%99%BB%E5%9C%BA%EF%BC%9A%E5%8D%8E%E5%AE%87%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%BB%E7%AE%A1%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%2B%E5%B9%B3%E5%8F%B0%E5%AF%B9%E6%8E%A5%2B%E6%80%BB%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E6%8C%87%E5%8D%97%21%E8%B0%B7%E6%AD%8C%E7%BE%BD%E6%AF%9B%E7%90%83.md
+
+美加墨世界杯季军战，英格兰击败法国拿下赛事季军中国日报网
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2027%E7%A7%91%E6%99%AE%E9%85%8D%E5%90%88_%E5%8D%8E%E5%AE%87%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%BB%E7%AE%A1%E6%8B%9B%E5%95%86%E6%B3%A8%E5%86%8C%E4%BB%A3%E7%90%86%E6%9C%80%E6%96%B0%E6%94%BF%E7%AD%96%E9%A3%9E%E4%B9%A6%E5%89%AA%E8%BE%91.md
+
+重大水利枢纽蓄水成功 抗旱防洪能力增强
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E5%BD%A9%E6%B0%91%E6%80%BB%E9%9B%86_%E5%8D%8E%E5%AE%87%C2%B7%E5%A8%B1%E4%B9%90_%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E4%B8%93%E5%B1%9E%E7%BD%91%E5%9D%80%E7%A7%BB%E5%8A%A8%E7%AB%AF%E8%B1%86%E7%93%A3%E5%8A%A8%E6%BC%AB.md
+
+美股出口保险投保抬升服务商，地缘风险推高农产品出口保险投保
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E6%88%90%E9%95%BF%E6%94%BB%E7%95%A5_%E5%8D%8E%E5%AE%87%C2%B7%E5%A8%B1%E4%B9%90_%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%E6%90%9C%E7%8B%90%E5%B0%8F%E8%AF%B4.md
+
+乌克兰果园损毁严重，鲜果加工出口产业遭受重创
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E5%AE%98%E6%96%B9%E9%A2%86%E5%9F%9F_%E5%8D%8E%E5%AE%87%C2%B7%E5%A8%B1%E4%B9%90_%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E2%80%94%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%21%E8%B1%86%E7%93%A3%E8%8D%89%E5%8E%9F.md
+
+商圈金秋美食节开幕点燃餐饮消费
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E5%AE%98%E6%96%B9%E5%9C%88%E5%B1%82_%E5%8D%8E%E5%AE%87%C2%B7%E5%A8%B1%E4%B9%90_%E6%80%BB%E4%BB%A3%E7%90%86%E2%80%94%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%E6%8F%AD%E7%A7%98%21%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E9%80%9A%E9%81%93%E4%B8%80%E9%94%AE%E7%9B%B4%E8%BE%BE%21%E4%BA%AC%E4%B8%9C%E8%80%83%E7%A0%94.md
+
+青少年人工智能成果展对外开放展示学生科创作品
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%A7%91%E6%99%AE%E8%BF%9B%E9%98%B6_%E5%8D%8E%E5%AE%87%C2%B7%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0ID%E3%80%81%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%EF%BC%8C%E7%9C%8B%E5%AE%8C%E5%B0%B1%E8%83%BD%E4%B8%8A%E6%89%8B%21%E8%B0%B7%E6%AD%8C%E6%BA%AF%E6%BA%AA.md
+
+气象部门提示秋旱风险，部分地区做好农田抗旱保苗工作
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E6%88%90%E9%95%BF%E6%96%B9%E6%B3%95_%E5%8D%8E%E5%AE%87app%E5%AE%98%E6%96%B9%E4%B8%8B%E8%BD%BD_%E5%AE%89%E5%8D%93%E8%8B%B9%E6%9E%9C%E7%89%88_%E5%8D%8E%E5%AE%87%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%21%E7%88%B1%E5%A5%87%E8%89%BA%E5%AD%97%E7%94%BB.md
+
+美股南南金融合作咨询服务商，发展中国家互相提供农业融资
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%A7%92%E6%87%82%E6%96%B0%E6%94%BB%E7%95%A5_%E5%8D%8E%E5%AE%87app%E5%AE%98%E7%BD%91%E4%B8%8B%E8%BD%BD%E5%85%A5%E5%8F%A3%E6%89%8B%E6%9C%BA%E7%89%88%E8%B5%B7%E7%82%B9%E6%8A%A4%E8%82%A4.md
+
+开源任务进度可视化组件，实时观测智能任务进展
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%A7%92%E6%87%82%E4%B8%96%E7%95%8C_%E5%8D%8E%E5%AE%87%E7%99%BB%E5%BD%95%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E5%85%A8%E6%B5%81%E7%A8%8B%E6%8C%87%E5%8D%97%E8%BD%BB%E6%9D%BE%E4%B8%8A%E6%89%8B%E7%BD%91%E6%98%93%E7%83%98%E7%84%99.md
+
+美股三大股指集体收跌，能源板块逆势走强科技股走弱
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%A4%BE%E4%BC%9A%E8%AF%84%E8%AE%BA_%E5%8D%8E%E5%AE%87%E7%99%BB%E5%BD%95%E4%B8%8E%E6%B3%A8%E5%86%8C_%E5%8D%8E%E5%AE%87%E5%9C%B0%E5%9D%80%2C%E5%8D%8E%E5%AE%87%E7%BD%91%E5%9D%80%2C%E5%8D%8E%E5%AE%87app%E4%B8%8B%E8%BD%BD%E5%8F%8A%E7%BD%91%E9%A1%B5%E7%89%88%E7%BE%8E%E5%9B%A2%E7%99%BE%E7%A7%91.md
+
+开源 AI 代码漏洞风险自动定级评估报告脚本开放源码
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%9F%A5%E8%AF%86%E5%A4%A7%E7%A4%BC%E5%8C%85%EF%BC%9A%E5%8D%8E%E5%AE%87%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E6%94%AF%E4%BB%98%E5%AE%9D%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E5%8D%8E%E5%AE%87%E5%88%86%E5%88%86%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A%28%E5%AE%98%E7%BD%91%29%21%E8%85%BE%E8%AE%AF%E5%9B%BD%E9%99%85.md
+
+国内农村快递网点覆盖率进一步提升，畅通农产品外销渠道
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E8%81%9A%E7%84%A6%E8%AF%9D%E9%A2%98%EF%BC%9A%E5%8D%8E%E5%AE%87%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E6%99%BA%E8%83%BD%E6%89%8B%E8%A1%A8%E5%BC%80%E5%90%AF%E6%96%B0%E4%BD%93%E9%AA%8C%E7%BD%91%E6%98%93%E7%A4%BE%E4%BC%9A.md
+
+农村道路亮化工程完工夜晚乡村道路亮起路灯
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E5%AE%98%E6%96%B9%E5%85%B1%E4%BA%AB_%E5%8D%8E%E5%AE%87%E5%B9%B3%E5%8F%B0_%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%2C%E6%96%B0%E6%89%8B%E5%B0%8F%E7%99%BD%E7%A6%8F%E5%88%A9%21%E6%96%B0%E6%B5%AA%E5%9C%B0%E8%B4%A8.md
+
+加拿大荞麦库存累积，健康杂粮出口价格承压下行
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%83%AD%E9%97%A8%E7%88%86%E6%96%99%EF%BC%9A%E5%8D%8E%E5%AE%87%E5%B9%B3%E5%8F%B0_%E6%B3%A8%E5%86%8CID%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D%21%E7%BE%8E%E5%9B%A2%E4%BF%A1%E8%B4%B7.md
+
+多地推进城市内河生态补水调度，改善内河河道水体水生态环境质量
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%A7%91%E6%99%AE%E7%AC%94%E8%AE%B0_%E5%8D%8E%E5%AE%87%E5%B9%B3%E5%8F%B0%E7%BD%91%E9%A1%B5%E7%89%88%E4%BF%9D%E5%A7%86%E7%BA%A7%E6%8C%87%E5%8D%97_%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D%21%E5%B0%8F%E7%B1%B3%E7%94%9F%E7%89%A9.md
+
+布基纳法索玉米库存充足，粮食进口采购需求明显减弱
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2027%E7%99%BE%E7%A7%91%E9%87%91%E5%85%B8_%E5%8D%8E%E5%AE%87%E5%B9%B3%E5%8F%B0%E7%BA%BF%E8%B7%AF%E6%B5%8B%E9%80%9F%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%A3%80%E6%B5%8B%E5%85%A8%E6%94%BB%E7%95%A5%E7%AE%80%E4%B9%A6%E7%90%86%E8%B4%A2.md
+
+越南咖啡采收进度不及预期，全球咖啡库存进一步消耗
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E5%AE%98%E6%96%B9%E8%A7%84%E5%88%92_%E5%8D%8E%E5%AE%87%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E9%81%BF%E5%9D%91%E6%8C%87%E5%8D%97_%E5%AE%98%E6%96%B9%E6%B3%A8%E5%86%8C%28%E5%8D%8E%E5%AE%87%29%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E4%B8%8E%E4%B8%8A%E7%BA%A7%E5%AF%B9%E6%8E%A5%E6%B3%A8%E6%84%8F%E4%BA%8B%E9%A1%B9%21B%E7%AB%99%E9%82%AE%E7%A5%A8.md
+
+工业园区循环化改造完工 资源利用率提升
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E9%87%8D%E7%82%B9%E9%80%9F%E9%80%92_%E5%8D%8E%E5%AE%87%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E2%80%94%E6%83%B3%E5%81%9A%E6%80%BB%E4%BB%A3%E7%90%86%E7%9A%84%E7%9C%8B%E8%BF%99%E9%87%8C%21%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E5%85%A5%E5%8F%A3%E6%9B%9D%E5%85%89%21%E7%BD%91%E6%98%93%E6%96%B9%E8%A8%80.md
+
+开源 Python 高性能 AI 特征工程库迎来版本迭代
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E5%AE%98%E6%96%B9%E7%84%95%E7%81%BF_%E5%8D%8E%E5%AE%87%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%2B%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2B%E6%80%BB%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E6%8C%87%E5%8D%97%21%E3%80%8CB%20%E7%AB%99%E6%9E%81%E9%80%9F%E7%89%88%E3%80%8D.md
+
+市场监管部门整治养老诈骗广告，清理针对老年群体虚假营销广告
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E6%AF%8F%E6%97%A5%E7%AE%80%E6%8A%A5_%E5%8D%8E%E5%AE%87%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%C2%B7%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%E5%BF%AB%E6%89%8B%E5%85%89%E4%BC%8F.md
+
+社区老年食堂增设送餐上门服务覆盖行动不便老人
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%AC%AC%E4%B8%80%E7%A7%91%E6%99%AE_%E5%8D%8E%E5%AE%87%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%E2%80%94%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%21%E7%BE%8E%E5%9B%A2%E6%B0%94%E8%B1%A1.md
+
+全球跨境电商退货问题凸显，退货成本侵蚀企业利润空间
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%A7%91%E6%99%AE%E9%A9%B1%E5%8A%A8_%E5%8D%8E%E5%AE%87%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E5%AE%98%E7%BD%91_%E5%8D%8E%E5%AE%87QQ%E5%88%86%E5%88%86%E7%99%BB%E5%BD%95_%E5%8D%8E%E5%AE%87%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%9C%B0%E5%9D%80%28%E5%AE%98%E7%AB%99%29%21%E6%8B%BC%E5%A4%9A%E5%A4%9A%E5%81%A5%E5%BA%B7.md
+
+多地严查网约车平台违规派单，保障网约车乘客出行安全合法权益
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%83%AD%E5%BA%A6%E6%A6%9C%E9%A6%96%EF%BC%9A%E5%8D%8E%E5%AE%87%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E8%AE%A1%E5%88%92_%E5%8D%8E%E5%AE%87QQ%E5%88%86%E5%88%86%E6%96%B9%E6%A1%88_%E5%8D%8E%E5%AE%87%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%B9%B3%E5%8F%B0%28%E5%AE%98%E7%BD%91%29%21%E8%8A%92%E6%9E%9C%E5%9B%AD%E8%89%BA.md
+
+国产新型降噪材料研发成功，应用于交通建筑降噪多个场景
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E8%81%9A%E7%84%A6%E7%9C%9F%E7%9B%B8%EF%BC%9A%E5%8D%8E%E5%AE%87%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E8%AE%A1%E5%88%92_%E5%8D%8E%E5%AE%87QQ%E5%88%86%E5%88%86%E6%B3%A8%E5%86%8C_%E5%8D%8E%E5%AE%87%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%B9%B3%E5%8F%B0%28%E5%AE%98%E7%AB%99%29%21%E6%96%B0%E6%B5%AA%E7%93%B7%E5%99%A8.md
+
+互联网医院复诊范围扩大 线上就医更省心
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%BC%98%E7%94%B1%E9%93%BA%E9%99%88_%E5%8D%8E%E5%AE%87%E6%89%8B%E6%9C%BAapp%E5%AE%89%E5%8D%93%E4%B8%8B%E8%BD%BD%E5%9C%B0%E5%9D%80%E2%80%94%E5%8D%8E%E5%AE%87%E7%BD%91%E9%A1%B5%E7%89%88%E4%B8%80%E7%AB%99%E5%BC%8F%E6%9C%8D%E5%8A%A1%21%E3%80%8C%E9%85%B7%E7%8B%97%E9%9F%B3%E4%B9%90%E3%80%8D.md
+
+国内高标准渔港建设推进，提升渔业防灾减灾生产作业能力
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2027%E5%AE%98%E6%96%B9%E5%B9%B3%E5%8F%B0_%E5%8D%8E%E5%AE%87%E6%89%8B%E6%9C%BA%E7%89%88app%E4%B8%8B%E8%BD%BD%E4%B8%93%E5%B1%9E%E7%A7%BB%E5%8A%A8%E7%AB%AF%E7%BD%91%E5%9D%80%E8%B0%B7%E6%AD%8C%E6%95%99%E8%82%B2.md
+
+美股天然橡胶鞋类产业链服务商，鞋类产能向多国分散
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%B3%BB%E7%BB%9F%E5%AF%BC%E8%AF%BB_%E5%8D%8E%E5%AE%87%E9%A6%96%E9%A1%B5%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%AE%98%E7%BD%91%E5%85%A5%E5%8F%A3%E7%A7%BB%E5%8A%A8%E7%AB%AF%E9%92%89%E9%92%89%E5%85%BB%E8%80%81.md
+
+开源视频剪辑脚本仓库，代码自动裁剪拼接影片素材
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%A7%92%E6%87%82%E6%93%8D%E4%BD%9C%E6%B3%95_%E5%8D%8E%E5%AE%87%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91app%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%21%E7%BE%8E%E5%9B%A2%E6%98%86%E8%99%AB.md
+
+海洋牧场项目投产 助力蓝色经济稳步前行
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%83%AD%E7%82%B9_%E5%8D%8E%E5%AE%87%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%E6%96%B0%E6%B5%AA%E6%B0%94%E8%B1%A1.md
+
+肯尼亚咖啡采收结束，东非咖啡出口总量小幅回落
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%AC%AC%E4%B8%80%E6%A0%B8%E5%BF%83_%E5%8D%8E%E5%AE%87%E5%A8%B1%E4%B9%90_%E6%8B%9B%E5%95%86%E6%80%BB%E4%BB%A3%E7%90%86%2C%E5%8D%8E%E5%AE%87%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2C%E5%8D%8E%E5%AE%87%E4%B8%8A%E7%BA%A7%E6%89%B6%E6%8C%81%21360%E6%BA%AF%E6%BA%AA.md
+
+医保药品目录调整纳入多款惠民新药
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E5%86%85%E6%A0%B8%E7%94%84%E6%96%AD_%E5%8D%8E%E5%AE%87%E6%8B%9B%E5%95%86%E6%80%BB%E4%BB%A3%E7%90%86%2C%E5%8D%8E%E5%AE%87%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2C%E5%8D%8E%E5%AE%87%E4%B8%8A%E7%BA%A7%E6%89%B6%E6%8C%81%E7%99%BE%E5%BA%A6%E6%97%85%E6%B8%B8.md
+
+气象秋台风加密监测预警 防范风雨带来次生灾害
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%A7%91%E6%99%AE%E7%84%A6%E7%82%B9_%E5%8D%8E%E5%AE%87%E6%8B%9B%E5%95%86%E6%80%BB%E4%BB%A3%E7%90%86%2C%E5%8D%8E%E5%AE%87%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2C%E5%8D%8E%E5%AE%87%E4%B8%8A%E7%BA%A7%E6%89%B6%E6%8C%81%21%E9%92%89%E9%92%89%E5%9B%AD%E8%89%BA.md
+
+疾控部门科普诺如病毒校园防控，学校落实消毒通风做好病例处置
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%A1%AC%E6%A0%B8%E6%99%BA%E5%BA%93_%E5%8D%8E%E5%AE%87%E6%94%AF%E4%BB%98%E5%AE%9D%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E5%8D%8E%E5%AE%87%E5%A5%96%E6%9D%AF%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A%28%E5%AE%98%E7%AB%99%29%21%E8%85%BE%E8%AE%AF%E4%B9%90%E5%99%A8.md
+
+开源低代码 AI 智能体技能拖拽编排工作台市场开源上线
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E5%B9%B4%E5%BA%A6%E7%9C%9F%E7%9B%B8_%E5%8D%8E%E5%AE%87%E4%B8%BB%E7%AE%A1%E6%8B%9B%E5%95%86%E6%B3%A8%E5%86%8C%E4%BB%A3%E7%90%86%E6%9C%80%E6%96%B0%E6%94%BF%E7%AD%96%E4%BC%98%E9%85%B7%E4%BF%A1%E8%B4%B7.md
+
+苹果新品发布会临近，市场观望情绪加剧股价窄幅震荡
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E4%BB%B7%E5%80%BC%E6%8F%90%E5%8D%87_%E5%8D%8E%E5%AE%87%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E4%B8%93%E5%B1%9E%E7%BD%91%E5%9D%80%E7%A7%BB%E5%8A%A8%E7%AB%AF%E9%92%89%E9%92%89%E6%AF%8D%E5%A9%B4.md
+
+社区定制班车开通 连接居民区与大型商业商圈
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E5%AE%98%E6%96%B9%E8%A7%86%E7%82%B9_%E5%8D%8E%E5%AE%87%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%E7%BE%8E%E5%9B%A2%E5%8D%AB%E6%98%9F.md
+
+开源内网 AI 语音助手多房间设备联动方案更新
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E8%B5%84%E8%AE%AF%E6%92%AD%E6%8A%A5_%E5%8D%8E%E5%AE%87%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E2%80%94%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%21%E3%80%8C%E6%B1%BD%E6%B0%B4%E9%9F%B3%E4%B9%90%E3%80%8D.md
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E5%AE%98%E6%96%B9%E6%99%AE%E5%8F%8A_%E5%8D%8E%E5%AE%87%E6%80%BB%E4%BB%A3%E7%90%86%E2%80%94%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%E6%8F%AD%E7%A7%98%21%E6%8B%9B%E5%95%86%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E9%80%9A%E9%81%93%E4%B8%80%E9%94%AE%E7%9B%B4%E8%BE%BE%21%E8%B0%B7%E6%AD%8C%E6%B5%B7%E5%B2%9B.md
+
+美股受灾农业重建服务商，气候损失损害基金正式运行
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E5%B9%B4%E5%BA%A6%E9%80%9F%E8%A7%88_%E7%9A%87%E9%A9%AC%C2%B7%E5%A8%B1%E4%B9%90_app%E5%AE%98%E6%96%B9%E4%B8%8B%E8%BD%BD_%E5%AE%89%E5%8D%93%E8%8B%B9%E6%9E%9C%E7%89%88_%E7%9A%87%E9%A9%AC%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%21%E5%B0%8F%E7%BA%A2%E4%B9%A6%E5%81%A5%E5%BA%B7.md
+
+全球服务贸易占比提升，数字服务成为主要增长引擎
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%8E%A9%E5%AE%B6%E5%88%9B%E8%A7%81_%E7%9A%87%E9%A9%AC%C2%B7%E5%A8%B1%E4%B9%90_%E7%99%BB%E5%BD%95%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E5%85%A8%E6%B5%81%E7%A8%8B%E6%8C%87%E5%8D%97%E8%BD%BB%E6%9D%BE%E4%B8%8A%E6%89%8B%E8%B5%B7%E7%82%B9%E6%8A%A4%E8%82%A4.md
+
+国内农村饮水安全工程升级改造，进一步提升农村饮水质量
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%A7%91%E6%99%AE%E8%A6%81%E8%A7%88_%E7%9A%87%E9%A9%AC%C2%B7%E5%A8%B1%E4%B9%90_%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E6%99%BA%E8%83%BD%E6%89%8B%E8%A1%A8%E5%BC%80%E5%90%AF%E6%96%B0%E4%BD%93%E9%AA%8CB%E7%AB%99%E5%8C%BB%E7%BE%8E.md
+
+国产自主导航无人机完成长距离飞行测试任务顺利通过
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%A7%91%E6%99%AE%E8%B5%84%E6%96%99_%E7%9A%87%E9%A9%AC%C2%B7%E5%A8%B1%E4%B9%90_%E7%9A%87%E9%A9%AC%E9%9D%A0%E8%B0%B1%E5%90%97%EF%BC%9F%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E5%B9%B3%E5%8F%B0%E7%9C%9F%E5%AE%9E%E6%80%A7%E5%88%86%E6%9E%90%21%E8%8A%92%E6%9E%9C%E5%85%AC%E8%80%83.md
+
+农产品产销对接会打通农户销售渠道
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E8%B6%85%E5%85%A8%E6%8C%87%E5%8D%97_%E7%9A%87%E9%A9%AC%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E5%85%A8%E6%94%BB%E7%95%A5_%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%B5%81%E7%A8%8B%2B%E5%AE%98%E7%AB%99%E5%9C%B0%E5%9D%80%E6%B1%87%E6%80%BB%21%E5%B0%8F%E7%B1%B3%E6%AF%8D%E5%A9%B4.md
+
+城市慢行绿道全线贯通 适合骑行散步休闲
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E6%99%AE%E5%8F%8A%E8%AE%A8%E8%AE%BA_%E7%9A%87%E9%A9%AC%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E7%BD%91%E9%A1%B5%E7%89%88%E4%BF%9D%E5%A7%86%E7%BA%A7%E6%8C%87%E5%8D%97_%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D%21%E5%A4%B4%E6%9D%A1%E5%A4%A9%E6%96%87.md
+
+开源电子书籍章节生成仓库，产出完整图书正文
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E6%88%90%E9%95%BF%E6%8A%80%E5%B7%A7_%E7%9A%87%E9%A9%AC%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E7%BA%BF%E8%B7%AF%E6%B5%8B%E9%80%9F%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%A3%80%E6%B5%8B%E5%85%A8%E6%94%BB%E7%95%A5%E7%AE%80%E4%B9%A6%E8%88%AA%E5%A4%A9.md
+
+河湖生态综合治理成效显现 流域水质指标持续向好
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/35%E5%88%86%E9%92%9F%E8%AE%A4%E8%AF%86_%E7%9A%87%E9%A9%AC%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E9%81%BF%E5%9D%91%E6%8C%87%E5%8D%97_%E5%AE%98%E6%96%B9%E6%B3%A8%E5%86%8C%28%E7%9A%87%E9%A9%AC%29%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E4%B8%8E%E4%B8%8A%E7%BA%A7%E5%AF%B9%E6%8E%A5%E6%B3%A8%E6%84%8F%E4%BA%8B%E9%A1%B9%21%E6%8B%BC%E5%A4%9A%E5%A4%9A%E7%9F%AD%E8%A7%86%E9%A2%91.md
+
+非遗文化进校园开设兴趣选修课程
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2027%E5%AE%98%E6%96%B9%E5%BC%82%E6%AD%A5_%E7%9A%87%E9%A9%AC%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E2%80%94%E6%83%B3%E5%81%9A%E6%80%BB%E4%BB%A3%E7%90%86%E7%9A%84%E7%9C%8B%E8%BF%99%E9%87%8C%21%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E5%85%A5%E5%8F%A3%E6%9B%9D%E5%85%89%21%E5%B0%8F%E7%BA%A2%E4%B9%A6%E7%A7%91%E5%B9%BB.md
+
+国产新型生物有机肥扩产生产，改良耕地土壤培肥地力减少化肥
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%A7%91%E6%99%AE%E4%B8%93%E8%AE%BF_%E7%9A%87%E9%A9%AC%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E9%81%BF%E5%9D%91_%E8%AE%A4%E5%87%86%E5%AE%98%E7%BD%91%E5%9C%B0%E5%9D%80%2C%E4%B8%8D%E8%B8%A9%E9%9B%B7%21%E3%80%8C%E9%85%B7%E7%8B%97%E7%9B%B4%E6%92%AD%E3%80%8D.md
+
+开源 LFS 存储配额上调，企业大文件上传更加顺畅
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2027%E5%AE%98%E6%96%B9%E6%9D%A1%E6%AC%BE_%E7%9A%87%E9%A9%AC%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%C2%B7%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%E4%BC%98%E9%85%B7%E4%BD%93%E8%82%B2.md
+
+开源多模态 PDF 问答框架对外开放源码
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%A7%91%E5%AD%A6%E5%A4%A7%E7%99%BE%E7%A7%91%EF%BC%9A%E7%9A%87%E9%A9%AC%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%E2%80%94%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%21%E5%A4%B4%E6%9D%A1%E7%BC%96%E7%A8%8B.md
+
+AI 天气预测开源模型上线，本地运行气象预报任务
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E5%8F%B2%E6%96%99%E8%80%83%E5%BD%95_%E7%9A%87%E9%A9%AC%C2%B7%E5%A8%B1%E4%B9%90_%E6%89%8B%E6%9C%BAapp%E8%8B%B9%E6%9E%9C%E4%B8%8B%E8%BD%BD%E5%9C%B0%E5%9D%80%E2%80%94%E7%9A%87%E9%A9%AC%E7%BD%91%E9%A1%B5%E7%89%88%E4%B8%80%E7%AB%99%E5%BC%8F%E6%9C%8D%E5%8A%A1%21%E6%8B%BC%E5%A4%9A%E5%A4%9A%E6%B5%B7%E6%B4%8B.md
+
+外贸企业海外市场开拓补贴陆续发放助力企业出海参展
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%A7%91%E6%99%AE%E7%88%86%E6%96%99_%E7%9A%87%E9%A9%AC%C2%B7%E5%A8%B1%E4%B9%90_%E6%89%8B%E6%9C%BA%E7%89%88app%E4%B8%8B%E8%BD%BD%E4%B8%93%E5%B1%9E%E7%A7%BB%E5%8A%A8%E7%AB%AF%E7%BD%91%E5%9D%80%E5%BF%AB%E6%89%8B%E5%A4%96%E8%AF%AD.md
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E8%81%9A%E7%84%A6%E5%BF%AB%E6%8A%A5%EF%BC%9A%E7%9A%87%E9%A9%AC%C2%B7%E5%A8%B1%E4%B9%90_%E9%A6%96%E9%A1%B5%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%AE%98%E7%BD%91%E5%85%A5%E5%8F%A3%E7%A7%BB%E5%8A%A8%E7%AB%AF%E8%B5%B7%E7%82%B9%E5%BB%BA%E7%AD%91.md
+
+家电以旧换新活动火热 释放居民消费潜力
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E5%AE%98%E6%96%B9%E6%8E%A5%E5%8F%A3_%E7%9A%87%E9%A9%AC%C2%B7%E5%A8%B1%E4%B9%90_%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%2C%E7%9C%8B%E5%AE%8C%E5%B0%B1%E8%83%BD%E4%B8%8A%E6%89%8B%21%E8%8A%92%E6%9E%9C%E5%9C%B0%E7%90%86.md
+
+开源 AI 代码提交变更许可证合规检测插件开放源码
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E5%85%A8%E6%99%AF%E6%B4%9E%E5%AF%9F_%E7%9A%87%E9%A9%AC%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0app%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%21%E8%B5%B7%E7%82%B9%E5%9C%B0%E7%90%86.md
+
+开源 Go 语言微服务链路追踪 AI 异常根因分析更新
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2027%E7%A7%92%E6%87%82%E8%A7%86%E8%A7%92_%E7%9A%87%E9%A9%AC%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88CSDN%E9%82%AE%E7%A5%A8.md
+
+青少年人工智能竞赛启动 激发科创热情
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%AC%AC%E4%B8%80%E9%A2%86%E8%88%AA_%E7%9A%87%E9%A9%AC%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%BB%E7%AE%A1%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%2B%E5%B9%B3%E5%8F%B0%E5%AF%B9%E6%8E%A5%2B%E6%80%BB%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E6%8C%87%E5%8D%97%21%E7%AE%80%E4%B9%A6%E6%B0%91%E4%BF%97.md
+
+全球跨境投资尽职调查服务，帮助企业完成海外投资前期尽调
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E9%87%8D%E7%82%B9%E8%AE%AE%E9%A2%98%EF%BC%9A%E7%9A%87%E9%A9%AC%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%BB%E7%AE%A1%E6%8B%9B%E5%95%86%E6%B3%A8%E5%86%8C%E4%BB%A3%E7%90%86%E6%9C%80%E6%96%B0%E6%94%BF%E7%AD%96%E4%BA%AC%E4%B8%9C%E6%88%B7%E5%A4%96.md
+
+开源旅行攻略图文仓库，产出全套出行游玩资料
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E5%BD%A9%E6%B0%91%E9%A2%91%E9%81%93_%E7%9A%87%E9%A9%AC%C2%B7%E5%A8%B1%E4%B9%90_%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E4%B8%93%E5%B1%9E%E7%BD%91%E5%9D%80%E7%A7%BB%E5%8A%A8%E7%AB%AF%E7%AE%80%E4%B9%A6%E6%8B%B3%E5%87%BB.md
+
+开源 Go 语言 CLI 脚手架 AI 项目初始化模板市场开源
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2027%E7%A7%91%E6%99%AE%E7%9B%91%E6%8E%A7_%E7%9A%87%E9%A9%AC%C2%B7%E5%A8%B1%E4%B9%90_%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%E8%B1%86%E7%93%A3%E5%81%A5%E8%BA%AB.md
+
+缅甸大米受到季风洪涝，部分稻田损毁影响新季产出
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E4%BB%B7%E5%80%BC%E8%A1%A1%E8%AF%84_%E7%9A%87%E9%A9%AC%C2%B7%E5%A8%B1%E4%B9%90_%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E2%80%94%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%21%E8%B1%86%E7%93%A3%E5%89%A7%E6%9C%AC%E6%9D%80.md
+
+社区老年反诈宣传小分队成立老人宣传提醒老人防骗
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E5%8A%9F%E8%83%BD%E9%97%AE%E7%AD%94_%E7%9A%87%E9%A9%AC%C2%B7%E5%A8%B1%E4%B9%90_%E6%80%BB%E4%BB%A3%E7%90%86%E2%80%94%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%E6%8F%AD%E7%A7%98%21%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E9%80%9A%E9%81%93%E4%B8%80%E9%94%AE%E7%9B%B4%E8%BE%BE%21%E7%AE%80%E4%B9%A6%E9%82%AE%E7%A5%A8.md
+
+美股循环经济带动农产回收产业服务商，循环经济带动农业回收产业
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%A7%92%E6%87%82%E7%A7%91%E6%99%AE%E7%AB%99_%E7%9A%87%E9%A9%AC%C2%B7%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0ID%E3%80%81%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%EF%BC%8C%E7%9C%8B%E5%AE%8C%E5%B0%B1%E8%83%BD%E4%B8%8A%E6%89%8B%21%E5%87%A4%E5%87%B0%E7%90%86%E8%B4%A2.md
+
+暑期消费调研报告出炉 文旅消费增长数据亮眼
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E6%89%8B%E8%AE%B0%E8%BE%91%E7%BA%82_%E7%9A%87%E9%A9%ACapp%E5%AE%98%E6%96%B9%E4%B8%8B%E8%BD%BD_%E5%AE%89%E5%8D%93%E8%8B%B9%E6%9E%9C%E7%89%88_%E7%9A%87%E9%A9%AC%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%21%E6%96%B0%E6%B5%AA%E7%A4%BE%E4%BC%9A.md
+
+开源缓存性能优化工具箱，提升缓存访问响应速度
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2027%E7%AC%AC%E4%B8%80%E5%9C%BA%E6%99%AF_%E7%9A%87%E9%A9%ACapp%E5%AE%98%E7%BD%91%E4%B8%8B%E8%BD%BD%E5%85%A5%E5%8F%A3%E6%89%8B%E6%9C%BA%E7%89%88%E8%B1%86%E7%93%A3%E7%8E%AF%E4%BF%9D.md
+
+美股工业景气跟踪服务商，涉农制造业经济体表现分化
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2027%E7%A7%91%E6%99%AE%E5%BA%94%E7%94%A8_%E7%9A%87%E9%A9%AC%E7%99%BB%E5%BD%95%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E5%85%A8%E6%B5%81%E7%A8%8B%E6%8C%87%E5%8D%97%E8%BD%BB%E6%9D%BE%E4%B8%8A%E6%89%8B%E7%BE%8E%E5%9B%A2%E6%96%87%E5%AD%A6.md
+
+开源跨平台网页 AI 表格增量抓取导出任务队列工具上线
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%B2%BE%E5%93%81%E8%A7%A3%E8%AF%BB_%E7%9A%87%E9%A9%AC%E7%99%BB%E5%BD%95%E4%B8%8E%E6%B3%A8%E5%86%8C_%E7%9A%87%E9%A9%AC%E5%9C%B0%E5%9D%80%2C%E7%9A%87%E9%A9%AC%E7%BD%91%E5%9D%80%2C%E7%9A%87%E9%A9%ACapp%E4%B8%8B%E8%BD%BD%E5%8F%8A%E7%BD%91%E9%A1%B5%E7%89%88%E4%BC%98%E9%85%B7%E7%83%98%E7%84%99.md
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2027%E7%99%BE%E5%BA%A6%E5%88%86%E4%BA%AB_%E7%9A%87%E9%A9%AC%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E6%94%AF%E4%BB%98%E5%AE%9D%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E7%9A%87%E9%A9%AC%E5%88%86%E5%88%86%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A%28%E5%AE%98%E7%BD%91%29%21%E8%B5%B7%E7%82%B9%E5%88%B6%E9%80%A0.md
+
+绿色出行优惠月开启公交地铁乘车享受折扣福利优惠
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%99%BE%E7%A7%91%E5%8C%97%E8%BE%B0_%E7%9A%87%E9%A9%AC%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E6%99%BA%E8%83%BD%E6%89%8B%E8%A1%A8%E5%BC%80%E5%90%AF%E6%96%B0%E4%BD%93%E9%AA%8C%E7%88%B1%E5%A5%87%E8%89%BA%E6%B5%B7%E6%B4%8B.md
+
+美股植物油周期分析服务商，植物油库存走势出现分化
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%AC%AC%E4%B8%80%E9%A1%B6%E7%BA%A7_%E7%9A%87%E9%A9%AC%E5%B9%B3%E5%8F%B0_%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%2C%E6%96%B0%E6%89%8B%E5%B0%8F%E7%99%BD%E7%A6%8F%E5%88%A9%21B%E7%AB%99%E7%A4%BE%E8%AF%84.md
+
+农村电商主播技能大赛火热开赛
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E7%A7%91%E6%99%AE%E7%8E%8B%E7%89%8C_%E7%9A%87%E9%A9%AC%E5%B9%B3%E5%8F%B0_%E6%B3%A8%E5%86%8CID%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D%21%E6%8B%BC%E5%A4%9A%E5%A4%9A%E9%9B%95%E5%A1%91.md
+
+应急救援装备物资清点更新完成补齐救灾物资储备清单内容
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E6%B8%85%E6%99%B0%E8%A6%81%E7%82%B9_%E7%9A%87%E9%A9%AC%E5%B9%B3%E5%8F%B0%E7%BD%91%E9%A1%B5%E7%89%88%E4%BF%9D%E5%A7%86%E7%BA%A7%E6%8C%87%E5%8D%97_%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D%21%E8%B5%B7%E7%82%B9%E7%9F%AD%E8%A7%86%E9%A2%91.md
+
+社区爱心洗衣站设立 免费为困难老人清洗衣物
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E5%88%9B%E6%96%B0%E8%A6%81%E8%A7%88_%E7%9A%87%E9%A9%AC%E5%B9%B3%E5%8F%B0%E7%BA%BF%E8%B7%AF%E6%B5%8B%E9%80%9F%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%A3%80%E6%B5%8B%E5%85%A8%E6%94%BB%E7%95%A5B%E7%AB%99%E6%8A%A4%E8%82%A4.md
+
+开源宠物识别仓库，图像识别区分猫狗家养动物
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/2026%E8%81%9A%E7%84%A6%E7%8E%B0%E5%9C%BA%EF%BC%9A%E7%9A%87%E9%A9%AC%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E9%81%BF%E5%9D%91%E6%8C%87%E5%8D%97_%E5%AE%98%E6%96%B9%E6%B3%A8%E5%86%8C%28%E7%9A%87%E9%A9%AC%29%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E4%B8%8E%E4%B8%8A%E7%BA%A7%E5%AF%B9%E6%8E%A5%E6%B3%A8%E6%84%8F%E4%BA%8B%E9%A1%B9%21%E8%B0%B7%E6%AD%8C%E7%AE%97%E6%B3%95.md
+
+城市林荫步道改造完工 夏日市民出行尽享清凉树荫
+
+| 来源：https://github.com/markbonec/tokuuoo6/blob/main/%E7%AC%AC%E4%B8%80%E7%A7%91%E6%99%AE%E4%B8%A8%E7%9A%87%E9%A9%AC%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E2%80%94%E6%83%B3%E5%81%9A%E6%80%BB%E4%BB%A3%E7%90%86%E7%9A%84%E7%9C%8B%E8%BF%99%E9%87%8C%21%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E5%85%A5%E5%8F%A3%E6%9B%9D%E5%85%89%21%E4%BA%AC%E4%B8%9C%E5%88%B6%E9%80%A0.md
